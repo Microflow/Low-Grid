@@ -20,5 +20,9 @@ https://www.youtube.com/watch?v=aqfAS9-btmg
 They lie. they don't talk about the nano tech/mind control they use to make people confused and miserable. they are liars and evil psychopaths.
 
 
+## Useful Lawful Money Threads
+
+https://www.godlikeproductions.com/forum1/message5199179/pg1
+
 
 
