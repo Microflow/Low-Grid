@@ -1,5 +1,9 @@
 # Low-Grid
 
+## Links
+
+chrome://settings/passwords
+
 ## Goals
 
 - Write up AMC paperwork. 
