@@ -8,7 +8,22 @@ chrome://settings/passwords
 
 - Write up AMC paperwork. 
 
+FIRST AMC ACCOUNTS / LEGAL THREAD DELETED
+
 https://www.godlikeproductions.com/forum1/message5213660/pg1
+
+SECOND AMC ACCOUNTS / LEGAL THREAD
+
+**To AMC Accounts / Legal department (Second)**
+
+*I started the first thread in good cheer, and good faith.
+
+Predictably, my goodwill was thrown back in my face.
+
+The is the second thread I'm starting on the subject.
+
+If it's deleted, I will start a third. My terms are going to get harder, and harder, and harder. The more you delete these threads, the worse it will get for you.*
+
 
 - Challenge Steve.
 - Continue with Saving to Suitors  
