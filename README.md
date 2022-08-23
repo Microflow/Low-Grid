@@ -45,3 +45,9 @@ https://www.godlikeproductions.com/forum1/message5199179/pg1
 
 
 
+# AMC
+
+Out of 3000 AMC staff, 2990 want to pay me monies owed. 10 are holding back, making excuses.
+How do I make them pay up?
+
+Any ideas?
