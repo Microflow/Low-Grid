@@ -44,8 +44,13 @@ the 5th hole should be the same, along with the 6th hole.
 - The copper elbow tubing goes into the saxophone mouthpiece 
 
 
+# More Homemade Saxes
 
+### Metal DIY Sax. Very beautiful playing.  
 
+#### Song starts about 50 seconds in.
+
+https://www.youtube.com/watch?v=5tIPMZJUNgo
 
 
 
