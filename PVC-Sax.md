@@ -1,10 +1,13 @@
-
-
-# Main Vid. 
+# PVC Sax, Inspiring Video. 
 
 ### Guy playing Awesome jazz on a PVC pipe Sax:
 
 https://www.youtube.com/watch?v=KkGXLYSMkWM
+
+
+
+
+
 
 
 
@@ -54,7 +57,15 @@ https://www.youtube.com/watch?v=5tIPMZJUNgo
 
 
 
+
+
+
 # Other Notes (Tyler won't need to read this)
+
+### How to Play Sax
+
+Alex: Well, better sax is the most popular but the best detailed videos are by "sax comprehensive"
+
 
 # Forum discussion
 
