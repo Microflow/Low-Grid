@@ -59,6 +59,8 @@ the 5th hole should be the same, along with the 6th hole.
 
 ## Hole Size Theory
 
+#### You can finely adjust tone hole size using a knife.
+
 ### Yamaha Primer on Hole Measurement Basics.
 
 A little wordy, but good.
@@ -67,6 +69,12 @@ A little wordy, but good.
 They are not at regular intervals, nor are they all positioned in a straight line. The holes are not in a straight line because they are positioned so as to be easier to cover with the fingers.
 In fact, providing they are positioned at the same height in the bore, the same pitch of sound will be produced irrespective of where they are placed on a circumference of the bore at that height. If you try stretching your fingers, you will find that on the human hand, the middle finger and the ring finger are harder to stretch than other fingers. Therefore, for the position of the holes on a recorder, the space between holes covered by the middle finger and the ring finger is also minimized.
 In accordance with the closely related pitch of the notes and size of the holes, the locations for all of the holes have been precisely adjusted so as to be easy to cover with the fingers.*
+
+** To give an example of the relationship between the positions of the tone holes and their size, if the position of the hole is moved farther down the bore of the recorder, the pitch of the sound can only be preserved by making the hole bigger. Conversely, when the hole is repositioned higher up the bore, it will be designed to be smaller.** 
+
+#### For a wooden recorder, if the pitch is found to be very slightly out during the final tuning, the size of the hole will be finely adjusted using a knife.
+
+
 
 # More Homemade Saxes
 
