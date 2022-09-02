@@ -126,7 +126,7 @@ Thu 10:16 PM
 - They come in strengths but I can't blow anything above a 3 effectively.  A beginner Reed is a 2 and 2.5 is most common
 - I've also had some success with a 1.5 but only in the lower registers of a soprano, but it has some interesting "spooky" potential
 1:16 AM
-You sent
+
 - 2.5 or 1.5, got it. Cheers.
 
 - For a dark sound 3+
@@ -134,280 +134,271 @@ You sent
 - 
 - 1.5 sounds spooky in a way it's a light sound
 
-Sound quality will probably suck if it's made from PvC.  Mouth pieces range from $20 to $800 or more
+- Sound quality will probably suck if it's made from PvC.  Mouth pieces range from $20 to $800 or more
 
- Wortham
-I mean if you want to learn a 2 is the easiest to find and start with
+ 
+- I mean if you want to learn a 2 is the easiest to find and start with
 3:51 AM
-But unless his instructions are really specific you'll have to go through 100 pipes, also soprano sax is one of the hardest ones
+- But unless his instructions are really specific you'll have to go through 100 pipes, also soprano sax is one of the hardest ones
 
-Ideally you should start on an alto or tenor
+- Ideally you should start on an alto or tenor
 
- Wortham
-Or even a clarinet
- If the sound holes aren't perfect it just gets even harder
-As a beginner using cheaper equipment, honestly probably not.  Also it will necessarily be more clarinet like anyways cause you'll be using small finger holes, saxes use mechanical covers for larger holes
+ 
+- Or even a clarinet
+- If the sound holes aren't perfect it just gets even harder
+- As a beginner using cheaper equipment, honestly probably not.  Also it will necessarily be more clarinet like anyways cause you'll be using small finger holes, saxes use mechanical covers for larger holes
 
- Wortham
-One of the many parts of that sax sound is that the sound holes are too big to be plugged with a finger so this PvC pipe instrument is probably closer to a clarinet or bassoon anyways
-You sent
-yes. its technically a recorder, or bassoon
-You sent
-thats cool. I LOVE the bassoon, even more than a sax
-You sent
-aha, Im starting to get it
+ 
+- One of the many parts of that sax sound is that the sound holes are too big to be plugged with a finger so this PvC pipe instrument is probably closer to a clarinet or bassoon anyways
+
+- Yes. its technically a recorder, or bassoon
+
+- Thats cool. I LOVE the bassoon, even more than a sax
+
+- aha, Im starting to get it
 
 
-I guess? TBH I'm not 100% sure but I have noticed that clarinet and soprano sax mouthpieces are almost the same
+- I guess? TBH I'm not 100% sure but I have noticed that clarinet and soprano sax mouthpieces are almost the same
+ 
+- So the difference is mainly in the body material and the hole size
 
- Wortham
-So the difference is mainly in the body material and the hole size
-You sent
-People are finding that PVC is surprisingly good
+- People are finding that PVC is surprisingly good
+ 
+- Plastic is probably closer to wood than brass
 
- Wortham
-Plastic is probably closer to wood than brass
-You sent
-It actually has a dark, dense, cool, classy sound
-You sent
-Ancient instrument makers literally didn't have it available
+- It actually has a dark, dense, cool, classy sound
 
- Wortham
-It probably depends on what you're going for.  I would describe that guys instrument as an alto clarinet or a soprano bassoon or something based off of my simple understanding...
-You sent
-soprano bassoon. pretty close
-You sent
-may i ask a couple more sax questions?
+- Ancient instrument makers literally didn't have it available
+ 
+- It probably depends on what you're going for.  I would describe that guys instrument as an alto clarinet or a soprano bassoon or something based off of my simple understanding...
 
-Yeah, it's come a long way.  Kind of disturbing
+- Soprano bassoon. pretty close
 
- Wortham
-Of course!
-You sent
-BTW, the song happy birthday is in the MIXOLYDIAN scale
-You sent
-thats a big happy jazz scale
+- May I ask a couple more sax questions?
 
- Wortham
-As someone though who liked compositions and would always get lazy with the details, I imagine an AI like this might be an asset for me
-You sent
-What are the best "basic sax beginner vids?"
-You sent
-If Im playing a PVC bassoon, what are the best exercises?
+- Yeah, it's come a long way.  Kind of disturbing
 
- Wortham
-Well, better sax is the most popular but the best detailed videos are by "sax comprehensive"
-You sent
-Do you get sharp notes with your mouth?
-You sent
-or is there a sharp key?
+- Of course!
 
-I can only do the main note and one octave with my mouth... the real experts can hit like 5 notes with their mouth
+- BTW, the song happy birthday is in the MIXOLYDIAN scale
 
-Don't worry about mouthpiece harmonics too start you gotta be able to do the basics first
+- Thats a big happy jazz scale
 
-Some black guy made a channel, sax comprehensive, it's got super detailed mouth diagrams etc
+- As someone though who liked compositions and would always get lazy with the details, I imagine an AI like this might be an asset for me
 
- Wortham
-Blacks love sax for some reason, maybe it's their lip shape 🤔
-You sent
-aha... I get it. Isn't there an exercise where you play a whole song with the mouthpiece?
+- What are the best "basic sax beginner vids?"
 
- Wortham
-Yeah if you're some kind of sax god
-You sent
-so what are the absolute basics?
-You sent
-major scale
-You sent
-happy birthday?
+- If Im playing a PVC bassoon, what are the best exercises?
+ 
+- Well, better sax is the most popular but the best detailed videos are by "sax comprehensive"
 
-I have gotten my tone to where I like it and can only do like 2 notes on the mouthpiece well
+- Do you get sharp notes with your mouth?
 
- Wortham
-Yeah just pick any easy song you like
-You sent
-what is the hardest thing?
+- Or is there a sharp key?
 
-Also use a phone tuner and make sure your notes are consistent with each other
+- I can only do the main note and one octave with my mouth... the real experts can hit like 5 notes with their mouth
 
-If you are outd tune to begin with that's common.  I could only hold soprano sax embouchure for like 15 minutes when I started and was flat by a whole note
+- Don't worry about mouthpiece harmonics too start you gotta be able to do the basics first
 
- Wortham
+- Some black guy made a channel, sax comprehensive, it's got super detailed mouth diagrams etc
+
+- Blacks love sax for some reason, maybe it's their lip shape 🤔
+
+- aha... I get it. Isn't there an exercise where you play a whole song with the mouthpiece?
+ 
+- Yeah if you're some kind of sax god
+
+- so what are the absolute basics?
+
+- major scale
+
+- happy birthday?
+
+- I have gotten my tone to where I like it and can only do like 2 notes on the mouthpiece well
+ 
+- Yeah just pick any easy song you like
+
+- what is the hardest thing?
+
+- Also use a phone tuner and make sure your notes are consistent with each other
+
+- If you are outd tune to begin with that's common.  I could only hold soprano sax embouchure for like 15 minutes when I started and was flat by a whole note
+
+ 
 The hardest thing is patience which is why I'm concerned that a PVC pipe instrument is not a good start 😉
-You sent
+
 aha. cool, im noting all this in a document, cheers
-You sent
+
 I am just fanatically exciting about affordable instruments
 
- Wortham
+ 
 You have to physically build up your mouth muscles especially with smaller mouthpieces which are harder
-You sent
+
 ok, smaller = harder, noted
-You sent
+
 So what kind of mouthpiece should I buy?
 
 At 1-2 months I was in tune but my mouth would fail me at like 20-25 minutes of playing
 
- Wortham
+ 
 After like 6 months I like tone but it fails after like 40 minutes
-You sent
+
 wow that is harsher than I thought
 
- Wortham
+ 
 Depends on the PVC pipe you're using but use the largest one that will fit your setup
-You sent
+
 So, if I just pick three bluesy notes, and work on tone, is that a good idea?
 
- Wortham
+ 
 Well actually I'd recommend alto because I had a cheap instrument with a tenor mouthpiece and it sounded bizarre
-You sent
+
 ok, large mouthpiece is good. noted.
-You sent
+
 OK, that was my question...
 
- Wortham
+ 
 It's probably possible for too large compared to the pipe... but soprano is really hard to begin with
-You sent
+
 what does it sound like at first, like a first day beginner?
-You sent
+
 Like pig squealing, squeaking, honking?
 
- Wortham
+ 
 So I'd recommend alto, it's in-between the two
-You sent
+
 i will prolly go with alto
 
 Honking is definitely a thing yeah
 
- Wortham
+ 
 You need a ligature too btw
-You sent
+
 So what do I need to buy in the shop? I dont want to get this wrong
 
- Wortham
+ 
 Ligature holds the eyes to the mouthpiece.  You wrap your lips around it (check those YouTube videos) and blow so that the Reed vibrates against the mouthpiece.  If it's just the mouthpiece it'll squeak
-You sent
+
 Large mouthpiece, 2.5 reed... and a ligature?
 
- Wortham
+ 
 Also mouthpiece, 2 Reed and an alto mouthpiece ligature
-You sent
+
 so that is three things?
 
 Don't try to learn on 2.5 yourouth won't handle it for more than a few minutes
 
- Wortham
+ 
 Mouth*
-You sent
+
 ok, so... 2
-You sent
+
 1) Beginner large alto mouthpiece. 2) 2 reed. 3) alto ligature.
 
 Honestly I would try to find a cheap used alro somewhere.  Half the notes will have air leaks but you should be able to know if the problem is you or your PVC pipe then...
 
- Wortham
+ 
 There's no such thing as a large alto, sorry... just alto
-You sent
+
 I literally don't have the cash
-You sent
+
 budget instruments are exciting to me.
-You sent
+
 I will deal with the bumps in the road. don't worry
-You sent
+
 when I was a kid... my parents told me they couldn't buy me a sax, cos it was 800 pounds
-You sent
+
 and I was really sad about that
 
- Wortham
+ 
 Yeah that's a problem... one other idea might be to get an extra pipe with no holes.  If you get a squeak from just the mouthpiece, then some kinda honk from a straight pipe (I have no idea what it'd sound like) then you can compare that to a drilled pipe
-You sent
+
 So I want to show some kid that he can start for 20 bucks
-You sent
+
 Even if its super hard
 
 I almost played sax as a kid but then I saw the guy clean it out and it had like a gallon of spit in it and I changed my mind
 
- Wortham
+ 
 But in hindsight I realized that guy was unusually spitty
-You sent
+
 haha
-You sent
+
 spit valves gross me out too
-You sent
+
 But no spit valve would be even grosser
-You sent
+
 why should I try with a no hole pvc pipe. As a comparison. I can half see your logic...
-You sent
+
 What am I aiming for? (PVC is cheap, so I will try what you said)
 
- Wortham
+ 
 Just so that you have a frame of reference... so much might go wrong with a home made instrument
-You sent
+
 sure, I get it
 
- Wortham
+ 
 Like, the no hope pipe might not work well either but more references means better troubleshooting
-You sent
+
 the luthier I am working with is pretty talented. he's a real hardware genius, TBH
-You sent
+
 aha, I get it
 
- Wortham
+ 
 Also is this design one pipe or multiple pipes
-You sent
+
 So with no holes, you're expecting...? just a honk... OK, I see your logic
-You sent
+
 One pipe
 
- Wortham
+ 
 Some kind of low note is my guess
-You sent
+
 multiple pipe looks lame, is more difficult, and more could go wrong
 
 But like, then you can compare it to how you're plugging the holesnwith your fingers
 
- Wortham
+ 
 Ya one pipe is probably better
-You sent
+
 I cued this vid. 2 mins if you have the time. He plays beautifully.
-You sent
+
 https://youtu.be/5tIPMZJUNgo?t=52
 
 Making & Playing the Mini Sax
-You sent
+
 I saw one guy lined the holes with glue, so he got a better plug
-You sent
+
 this conversation is very useful, cheers
 
 He's got a nice metal thing going on there
 
- Wortham
+ 
 Ttyl!
-You sent
+
 thanks for all your time today. You gave me a lot to think about, and I avoided some mistakes.
 
- Wortham
-You sent
+ 
+
 If yuou have time to tell me, expected total cost for mouthpiece, reed and ligature, that'd be cool. but if not, no worries
-You sent
+
 Sleep well!!!!
-You sent
+
 Nashville will be good to you. I can feel it strongly.
 
- Wortham
+ 
 Thanks ttyl
-You sent
+
 take care
 
 A Yamaha 4C is the standard and are like $25 but you might find cheaper brands in Taiwan.  Ligatures can be real cheap like $5 $10 tops.  Reeds are all the same unless you drop tons of cash
 
- Wortham
+ 
 Like you can buy plastic coated bamboo reeds from Japan or weird synthetic French stuff but every other Reed sounds the same to me and most people just use normal reeds, even at professional levels of playing
 8:19 AM
-You sent
+
 aha. Got it. Cheers
-You sent
+
 Copying all of this to a doc.
-You sent
+
 I guess I'll go with Yamaha. No point in saving cash on some lame knock off. 4C, got it
