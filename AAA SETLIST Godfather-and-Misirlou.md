@@ -320,11 +320,21 @@ But when they reach the scene of crime, Macavity's not there
 
 ## Amazing Grace
 
+#### 2nd Position Starts on 1 Draw
+
+1D 2B 2Dkya 3D 3D 2D 34D
+
 ### Tomlin Harp
 
 https://www.youtube.com/watch?v=DmzLYgdbSVo
 
+### Amazing Grace 1 minute Harp
 
+https://www.youtube.com/watch?v=07uWSU_RSUk
+
+### Ronnie Amazing Grace (starts playing at 2 minutes, lol)
+
+https://www.youtube.com/watch?v=PbxIGmTijEo
 
 
 ### GFM Spec 
