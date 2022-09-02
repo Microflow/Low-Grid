@@ -8,5 +8,4 @@ https://github.com/Microflow/Low-Grid/blob/main/AAA%20SETLIST%20Godfather-and-Mi
 
 ## PVC Sax 2 Tyler
 
-https://github.com/Microflow/Low-Grid/blob/main/PVC-Sax-Main-Doc.md
-
+https://github.com/Microflow/PVC-Sax#readme
