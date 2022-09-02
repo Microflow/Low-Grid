@@ -6,7 +6,7 @@ https://www.youtube.com/watch?v=KkGXLYSMkWM
 
 ### Tyler Number
 
-#### Phone is 0909570784 but the phone reception is shit in my house, so you may need to call a few times.
+#### Phone is 0909570784 but the phone reception isn't good  in my house, so you may need to call a few times.
 
 
 
