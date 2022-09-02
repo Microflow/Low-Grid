@@ -2,6 +2,8 @@
 ### EQUIPMENT: Boss Pedal, Wah, Strings  
 ### TOBUY: Percussion Scraper, Pocket Fan
 
+#### QUICKSET: Another Sunny Day, Godfather, Hello K burns my eyes, Amazing Grace/For Those, Lazy Jane (Acapella), Misirlou, 
+
 ## Setlist: DANSHUI RIVER JAKE PLAYLIST
 
 https://www.youtube.com/playlist?list=PLlOx95m4hh_-0zpePx7uZSABD5D7ITgP1
@@ -66,31 +68,31 @@ INTRO: Strum hard with pared down G chord.
 
 FIRST VERSE LOWER?: 
 
-Another sunny day, I met you up in the garden
-G                                      D (up diagonal slight?)
+### Another sunny day, I met you up in the garden
+### G                                      D (up diagonal slight?)
  
-You were digging plants, I dug you, beg your pardon
-         Am                                           Em (4: 7-9-7) 
+### You were digging plants, I dug you, beg your pardon
+###      Am                                           Em (4: 7-9-7) 
 
-I took a photograph of you in herbaceous border
-         C                    C          G (pick? Elongate Emperor Pick)
+### I took a photograph of you in herbaceous border
+###          C                    C          G (pick? Elongate Emperor Pick)
 
-It broke the heart of men and flowers and girls and trees
-             D SWING  D     (G HIGH 11) Play higher 7,6,5,5                                 G
+### It broke the heart of men and flowers and girls and trees
+###         D SWING  D     (G HIGH 11) Play higher 7,6,5,5                                 G
 
 ~O~
 
-Another rainy day, we're trapped inside with a train set
-G                                              D   
+### Another rainy day, we're trapped inside with a train set
+### G                                              D   
 
-Chocolate on the boil, steamy windows when we met
-Am                                          Em          
+### Chocolate on the boil, steamy windows when we met
+### Am                                          Em          
 
-You've got the attic window looking out on the cathedral
-C                                              G
+### You've got the attic window looking out on the cathedral
+### C                                              G
 
-And on a Sunday evening bells ring out in the dusk
-D                                             G  
+### And on a Sunday evening bells ring out in the dusk
+### D                                              G  
 
 
 ### Optional
@@ -203,7 +205,7 @@ xE|---0-0---0-0---0-0---0-0---0-0---0-0---0-0---0-0---|
 xC|--0---0-0---0-0---0-0---0-0---0-0---0-0---0-0---0--|
 xG|-0-----0-----2-----2-----0-----0-----2-----2-------|
 
-Verse:
+#### Verse:
      C                 Am
 I've heard there was a secret chord
      C                    Am
@@ -316,5 +318,16 @@ But when they reach the scene of crime, Macavity's not there
 
 # Mrs Robinson (Needs Backing)
 
+## Amazing Grace
 
+### Tomlin Harp
+
+https://www.youtube.com/watch?v=DmzLYgdbSVo
+
+
+
+
+### GFM Spec 
+
+https://github.github.com/gfm/
 
