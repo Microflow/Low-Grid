@@ -6,13 +6,13 @@ https://www.youtube.com/watch?v=KkGXLYSMkWM
 
 
 
-# Metal Sax, 179 bucks
+#### Metal Sax, 179 bucks
 
 https://www.minisax.com/store/stainless-steel
 
 
 
-## We're bulding a Recorder / Bassoon with a Sax Mouthpiece
+#### We're bulding a Recorder / Bassoon with a Sax Mouthpiece
 
 As this instrument has no keys, it's technically a recorder. A friend said it was a "soprano bassoon".
 
@@ -24,9 +24,9 @@ We can research "DIY recorders" to understand hole theory.
 
 # Measurements
 
-# Drill bit hole size from the above video.
+### Drill bit hole size from the above video.
 
-### NOTE: There are a couple of typos, which I preserved, because I wasn't sure exactly what he was saying..
+#### NOTE: There are a couple of typos, which I preserved, because I wasn't sure exactly what he was saying..
 
 - The pipe is 19 1/2 inches long,
 
@@ -50,25 +50,31 @@ the 5th hole should be the same, along with the 6th hole.
 - The fourth hole, 3/8 drillbit 
 - Hole 5 and 6, 1/2 drillbit.
 
-## Materials: 
+## PVC Sax Materials: 
+
+#### From the first vid.
 
 - The pipe is made from a piece of PVC 
 - The saxophone mouthpiece I bought from a music store
 - The rubber cap  holding on the saxophone mouthpiece can be bought from any hardware store
-- The copper elbow tubing goes into the saxophone mouthpiece 
+- **The copper elbow tubing goes into the saxophone mouthpiece.** 
 
-## Hole Size Theory
+### Hole Size Theory
 
-#### You can finely adjust tone hole size using a knife.
+###### You can finely adjust tone hole size using a knife.
 
-### Yamaha Primer on Hole Measurement Basics.
+#### Yamaha Primer on Hole Measurement Basics.
 
 A little wordy, but good.
 
-*The tone holes of a recorder tend to be thought of as being positioned at regular intervals, but that is not actually the case.
-They are not at regular intervals, nor are they all positioned in a straight line. The holes are not in a straight line because they are positioned so as to be easier to cover with the fingers.
-In fact, providing they are positioned at the same height in the bore, the same pitch of sound will be produced irrespective of where they are placed on a circumference of the bore at that height. If you try stretching your fingers, you will find that on the human hand, the middle finger and the ring finger are harder to stretch than other fingers. Therefore, for the position of the holes on a recorder, the space between holes covered by the middle finger and the ring finger is also minimized.
-In accordance with the closely related pitch of the notes and size of the holes, the locations for all of the holes have been precisely adjusted so as to be easy to cover with the fingers.*
+*- The tone holes of a recorder tend to be thought of as being positioned at regular intervals, but that is not actually the case.
+
+- They are not at regular intervals, nor are they all positioned in a straight line. 
+- The holes are not in a straight line because they are positioned so as to be easier to cover with the fingers.
+- In fact, providing they are positioned at the same height in the bore, the same pitch of sound will be produced irrespective of where they are placed on a circumference of the bore at that height. 
+- If you try stretching your fingers, you will find that on the human hand, the middle finger and the ring finger are harder to stretch than other fingers. 
+- Therefore, for the position of the holes on a recorder, the space between holes covered by the middle finger and the ring finger is also minimized.
+- In accordance with the closely related pitch of the notes and size of the holes, the locations for all of the holes have been precisely adjusted so as to be easy to cover with the fingers.*
 
 ** To give an example of the relationship between the positions of the tone holes and their size, if the position of the hole is moved farther down the bore of the recorder, the pitch of the sound can only be preserved by making the hole bigger. Conversely, when the hole is repositioned higher up the bore, it will be designed to be smaller.** 
 
@@ -76,11 +82,11 @@ In accordance with the closely related pitch of the notes and size of the holes,
 
 
 
-# More Homemade Saxes
+## More Homemade Saxes
 
 ### Metal DIY Sax. Very beautiful playing.  
 
-#### Song starts about 50 seconds in.
+##### Song starts about 50 seconds in.
 
 https://www.youtube.com/watch?v=5tIPMZJUNgo
 
@@ -89,7 +95,7 @@ https://www.youtube.com/watch?v=5tIPMZJUNgo
 
 
 
-# Other Notes (Tyler won't need to read this)
+## Other Notes (Tyler prolly won't need to read this)
 
 ### How to Play Sax
 
