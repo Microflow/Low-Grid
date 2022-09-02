@@ -12,6 +12,15 @@ https://www.minisax.com/store/stainless-steel
 
 
 
+## We're bulding a Recorder / Bassoon with a Sax Mouthpiece
+
+As this instrument has no keys, it's technically a recorder. A friend said it was a "soprano bassoon".
+
+We're using the sax mouthiece for a better tone.
+
+We can research "DIY recorders" to understand hole theory.
+
+
 
 # Measurements
 
@@ -47,6 +56,13 @@ the 5th hole should be the same, along with the 6th hole.
 - The saxophone mouthpiece I bought from a music store
 - The rubber cap  holding on the saxophone mouthpiece can be bought from any hardware store
 - The copper elbow tubing goes into the saxophone mouthpiece 
+
+## Hole Size Theory
+
+### Yamaha Primer on Hole Measurement Basics.
+
+A little wordy, but good.
+
 
 
 # More Homemade Saxes
