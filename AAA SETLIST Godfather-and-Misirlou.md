@@ -2,7 +2,7 @@
 ### EQUIPMENT: Boss Pedal, Wah, Strings  
 ### TOBUY: Percussion Scraper, Pocket Fan
 
-#### QUICKSET: Another Sunny Day, Godfather/Jedi/Peace (Led Zep Sweet Sound/Dorian Mongolian/Slash Blues Jagged Intro/Dropped D G#?/A#? blues/Jedi) , Jesus Pose/Riff...Terminator Gtr/Drums,Hello K burns my eyes, For Those/Amazing Grace, Lazy Jane (Acapella, Singing), Misirlou, Alien Girl Drums, Funk Swing, Macavity/Don't Abuse your power, Trouble/Ready for/Leadbelly,
+#### QUICKSET: Another Sunny Day X, Godfather/Jedi/Peace X (Led Zep Sweet Sound/Dorian Mongolian/Slash Blues Jagged Intro/Dropped D G#?/A#? blues/Jedi) , Jesus Pose/Riff X...Terminator X Gtr/Drums,Hello K burns my eyes X, For Those X/Amazing Grace, Lazy Jane X (Acapella, Singing), Misirlou X, Alien Girl Drums XF, Funk Swing XF, Macavity XF/Don't Abuse your power, Trouble X/Ready for/Leadbelly XF,
 
 To audince... we are trapped in a beautiful mirror.
 
