@@ -2,7 +2,9 @@
 ### EQUIPMENT: Boss Pedal, Wah, Strings  
 ### TOBUY: Percussion Scraper, Pocket Fan
 
-#### QUICKSET: Another Sunny Day, Godfather, Hello K burns my eyes, For Those/Amazing Grace, Lazy Jane (Acapella, Singing), Misirlou, Macavity/Don't Abuse your power, Trouble/Ready for.
+#### QUICKSET: Another Sunny Day, Godfather (Led ep Sweet Sound) , Terminator Gtr/Drums,Hello K burns my eyes, For Those/Amazing Grace, Lazy Jane (Acapella, Singing), Misirlou, Alien Girl Drums, Funk Swing, Macavity/Don't Abuse your power, Trouble/Ready for/Leadbelly,
+
+To audince... we are trapped in a beautiful mirror.
 
 ## Setlist: DANSHUI RIVER JAKE PLAYLIST
 
