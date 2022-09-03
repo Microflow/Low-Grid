@@ -2,7 +2,7 @@
 ### EQUIPMENT: Boss Pedal, Wah, Strings  
 ### TOBUY: Percussion Scraper, Pocket Fan
 
-#### QUICKSET: Another Sunny Day, Godfather (Led ep Sweet Sound) , Terminator Gtr/Drums,Hello K burns my eyes, For Those/Amazing Grace, Lazy Jane (Acapella, Singing), Misirlou, Alien Girl Drums, Funk Swing, Macavity/Don't Abuse your power, Trouble/Ready for/Leadbelly,
+#### QUICKSET: Another Sunny Day, Godfather/Jedi/Peace (Led Zep Sweet Sound/Dorian Mongolian/Slash Blues Jagged Intro/Dropped D G#?/A#? blues/Jedi) , Terminator Gtr/Drums,Hello K burns my eyes, For Those/Amazing Grace, Lazy Jane (Acapella, Singing), Misirlou, Alien Girl Drums, Funk Swing, Macavity/Don't Abuse your power, Trouble/Ready for/Leadbelly,
 
 To audince... we are trapped in a beautiful mirror.
 
