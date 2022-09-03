@@ -320,6 +320,10 @@ But when they reach the scene of crime, Macavity's not there
 
 ## Amazing Grace
 
+Beautiful Guitar, G C, D 
+
+https://www.youtube.com/watch?v=iWHYW7tQtDg
+
 #### 2nd Position Starts on 1 Draw
 
 1D 2B 2Dkya 3D 3D 2D 34D
@@ -336,6 +340,50 @@ https://www.youtube.com/watch?v=07uWSU_RSUk
 
 https://www.youtube.com/watch?v=PbxIGmTijEo
 
+## Amazing Grace / Those About to Rock / Leadbelly Lyrics 
+
+Amazing grace how sweet the sound
+That saved a wretch like me
+I once was lost, but now I'm found
+Was blind but now I see
+
+It was grace that taught my heart to fear
+And grace my fears relieved
+How precious did that grace appear
+The hour I first believed
+
+Through many dangers, toils, and snares
+I have already come
+This grace that brought me safe thus far
+And grace will lead me home
+
+When we've been here ten thousand years
+Bright, shining as the sun
+We've no less days to sing God's praise
+Than when we first begun
+
+Amazing grace how sweet the sound
+That saved a wretch like me
+I once was lost, but now I'm found
+Was blind but now I see
+
+## Hallelujah
+
+Son said mother don't you grieve and cry, Hallelu, Hallelu
+Son said mother don't you grieve and cry!, Hallelu!, Hallelu!
+Son said mother don't you grieve and cry
+Know your son was born to die
+That's when I have that true religion, Hallelu, Hallelu
+
+Then you must have that true religion
+True religion then your soul converted
+Then you must have that true religion, Hallelu, Hallelu
+
+Then you must have that true religion, Hallelu, Hallelu
+Then you must have that true religion!, Hallelu!, Hallelu!
+Then you must have that true religion
+True religion then your soul converted
+Then you will have that true religion, Hallelu!, Hallelu!
 
 ### GFM Spec 
 
