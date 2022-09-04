@@ -49,7 +49,7 @@ https://www.melbay.com/Content/Site161/FilesSamples/1736333048125jp_00000081018.
 
 # Uke
 
-## After Hours
+## After Hours Dm can be subbred with F
 
 https://www.youtube.com/watch?v=Hm-kMjaWkYs
 **
@@ -57,14 +57,14 @@ https://www.youtube.com/watch?v=Hm-kMjaWkYs
         
  If you close the door
  
-     Dm                  G
+     Dm OR F              G7
      
  The night could last forever
            C        A7
            
  Leave the sunshine out
  
-     Dm             G
+     Dm             G7
      
  And say hello to never
  
@@ -81,7 +81,7 @@ Verse:
             
  But if you close the door
  
-     Dm            G            C
+     Dm            G7           C
      
  I'd never have to see the day again
 
@@ -90,7 +90,7 @@ Verse:
         
  If you close the door
  
-     Dm                  G
+     Dm                  G7
      
  The night could last forever
  
@@ -98,7 +98,7 @@ Verse:
            
  Leave the wine glass out
  
-     Dm               G
+     Dm               G7
      
  And drink a toast to never
 
@@ -118,7 +118,7 @@ Verse:
  
  But if you close the door
  
-     Dm            G            C       -Bass line to Bridge: C - B - Bb -
+     Dm            G7          C       -Bass line to Bridge: C - B - Bb -
  
  I'd never have to see the day again
 
