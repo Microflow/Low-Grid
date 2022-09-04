@@ -2,13 +2,15 @@
 ### EQUIPMENT: Boss Pedal, Wah, Strings  
 ### TOBUY: Percussion Scraper, Pocket Fan
 
-#### QUICKSET: Another Sunny Day SX, Godfather/Jedi/Peace X (Led Zep Sweet Sound/Dorian Mongolian/Slash Blues Jagged Intro/Dropped D G#?/A#? blues/Jedi) , Jesus Pose/Riff X...Terminator X Gtr/Drums,Hello K burns my eyes X, For Those SX/Amazing Grace S, Lazy Jane SX (Acapella, Singing), Misirlou X, Alien Girl Drums SXF, Funk Swing XF, Macavity SXF/Don't Abuse your power, Trouble SX/Ready for SX/Leadbelly SXF, F Theme Cygnus X 4/4, Mrs Robinson SX
+#### QUICKSET: Another Sunny Day SX, Godfather/Jedi/Peace X (Led Zep Sweet Sound/Dorian Mongolian/Slash Blues Jagged Intro/Dropped D G#?/A#? blues/Jedi) , Jesus Pose/Riff X...Terminator X Gtr/Drums,Hello K burns my eyes X, For Those SX/Amazing Grace S/After Hours Singing, Lazy Jane SX (Acapella, Singing), Misirlou X, Alien Girl Drums SXF, Funk Swing XF, Macavity SXF/Don't Abuse your power, Trouble SX/Ready for SX/Leadbelly SXF, F Theme Cygnus X 4/4, Mrs Robinson SX
 
-To audince... we are trapped in a beautiful mirror.
+To audience... we are trapped in a beautiful mirror. You insist we play well. We insist you let our mistakes go. Music is a high wire act. Tonight, you will see us screw up, play in the wrong key, flub solos, miss notes. ZWhy? Because we're reaching. If you sit through the bad notes.... we might also play something beautiful.
 
 ## Setlist: DANSHUI RIVER JAKE PLAYLIST
 
 https://www.youtube.com/playlist?list=PLlOx95m4hh_-0zpePx7uZSABD5D7ITgP1
+
+# Coding and Jam Hackathon (for later)
 
 # DRUMS
 
@@ -37,17 +39,155 @@ https://www.youtube.com/watch?v=KI9S1O6GNlo
 ## Tremelo Picked Phrygian 
 ## Pete Cosey Phrygian Jam
 
-# God Bless The Child
+# God Bless The Child - Sax.
 
 https://www.youtube.com/watch?v=bkXL3hsAdNc
 
-# Uke Choird Inversions
+# Uke Chord Inversions
 
 https://www.melbay.com/Content/Site161/FilesSamples/1736333048125jp_00000081018.jpg
 
 # Uke
 
-# Another Sunny Day (Transpose it -7. Orange and Black Chrome Extension) 
+## After Hours
+
+https://www.youtube.com/watch?v=Hm-kMjaWkYs
+**
+        C         A7
+        
+ If you close the door
+ 
+     Dm                  G
+     
+ The night could last forever
+           C        A7
+           
+ Leave the sunshine out
+ 
+     Dm             G
+     
+ And say hello to never
+ 
+Verse:
+         C                              C7
+         
+ All the people are dancing and they're having such fun
+ 
+        F                       Fm
+   
+ I wish it could happen to me
+ 
+            C         A7
+            
+ But if you close the door
+ 
+     Dm            G            C
+     
+ I'd never have to see the day again
+
+
+        C         A7
+        
+ If you close the door
+ 
+     Dm                  G
+     
+ The night could last forever
+ 
+           C          A7
+           
+ Leave the wine glass out
+ 
+     Dm               G
+     
+ And drink a toast to never
+
+
+     C                           C7
+     
+ Oh, someday I know someone will look into my eyes
+ 
+            F
+            
+ And say hello
+                        Fm
+                        
+ You're my very special one
+            
+            C         A7
+ 
+ But if you close the door
+ 
+     Dm            G            C       -Bass line to Bridge: C - B - Bb -
+ 
+ I'd never have to see the day again
+
+Bridge:
+
+ Am         E7          Am       E7
+ 
+ Dark party bars, shiny Cadillac cars
+ 
+         Am        E7          Am        Am Ab G
+         
+ And the people on subways and trains
+ 
+         Dm          A7           Dm         A7
+         
+ Looking gray in the rain as they stand disarrayed
+ 
+        F                       G
+        
+ Oh but people look well in the dark
+
+ Chorus:
+            C         A7
+            
+ And if you close the door
+ 
+     Dm                  G
+     
+ The night could last forever
+ 
+           C        A7
+           
+ Leave the sunshine out
+ 
+     Dm           G
+     
+ And say hello to never
+
+
+         C                              C7
+         
+ All the people are dancing and they're having such fun
+ 
+   F                       Fm
+   
+ I wish it could happen to me
+ 
+              C         A7
+              
+ Cause if you close the door
+ 
+     Dm            G            C
+     
+ I'd never have to see the day again
+
+
+     Dm            G            C       A7
+     
+ I'd never have to see the day again -once more-
+ 
+     Dm            G            C
+     
+ I'd never have to see the day again
+
+## The Velvet Underground
+The Velvet Underground was a pioneering experimental rock band from New York City first active from 1965 to 1973. Its best-known lineup consisted of vocalist/guitarist Lou Reed, bassist/violist John Cale, guitarist Sterling Morrison and drummer Maureen Tucker. The band also collaborated with Nico for their debut album in 1967, under the supervision of producer and pop artist Andy Warhol.
+
+
+## Another Sunny Day (Transpose it -7. Orange and Black Chrome Extension) 
 
 THE HIGH NOTES ARE HARD. Should I sing low or high? 
 
