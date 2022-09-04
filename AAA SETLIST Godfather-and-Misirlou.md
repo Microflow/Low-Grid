@@ -285,6 +285,49 @@ https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTKve6wz3xMEWvV2IgDQfU5rcEL
 https://www.youtube.com/watch?v=ZhYlOffHn8s
 
 
+### Burden to The Lord - Blind Willie Johnson
+
+C C C C C dm C C C C Dm C C C C C F
+
+https://chordify.net/chords/take-your-burden-to-the-lord-and-leave-it-there-gospel-tune-on-ukulele-todd-b
+
+If the world from you withholds of its silver and its gold
+
+And you have to get along with meager fare
+
+Just remember, in his word, how he feeds the little bird
+
+Take your burden to the Lord, leave it there
+
+Leave it there, leave it there
+
+Just take your burden to the Lord oh and leave it there
+
+If you trust him through your doubt, he will surely bring you out
+
+Take your burden to the Lord, leave it there
+
+Now if your body suffers pain and your health you can't regain
+
+And your soul is slowly sinking in despair
+
+Jesus knows the pain you feel, he can save and he can heal
+
+Take your burden to the Lord, leave it there
+
+Leave it there, leave it there
+
+Just take your burden to the Lord oh and leave it there
+
+If you trust him through your doubt, he will surely bring you out
+
+Take your burden to the Lord, leave it there
+
+Take your burden to the Lord
+
+Leave it there
+
+
 
 
 ### Alt: Weird E chord.
