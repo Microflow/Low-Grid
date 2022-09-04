@@ -1,6 +1,8 @@
 
 # How can I reduce scope right now?
 
+### Take Headphones everywhere
+
 ## If you create an act, you create a habit. 
 ## If you create a habit, you create a character. 
 ## If you create a character, you create a destiny.
