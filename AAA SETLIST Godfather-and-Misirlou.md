@@ -1,5 +1,9 @@
 
-## If you create an act, you create a habit. If you create a habit, you create a character. If you create a character, you create a destiny.
+# How can I reduce scope right now?
+
+## If you create an act, you create a habit. 
+## If you create a habit, you create a character. 
+## If you create a character, you create a destiny.
 ## Andre Maurois
 
 ### EQUIPMENT: Boss Pedal, Wah, Strings  
