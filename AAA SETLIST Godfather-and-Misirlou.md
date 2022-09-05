@@ -237,7 +237,8 @@ Bridge:
  Oh but people look glow in the dark
 
  Chorus:
-            C         A7
+ 
+               C         A7
             
  And if you close the door
  
@@ -258,7 +259,7 @@ Bridge:
          
  All the people are dancing and they're having such fun
  
-   F                       Fm
+         F                       Fm
    
  I wish it could happen to me
  
