@@ -205,6 +205,7 @@ Straight into ## After Hours
             F
             
  And say hello
+ 
                         Fm
                         
  You're my very special one
@@ -219,7 +220,7 @@ Straight into ## After Hours
 
 Bridge:
 
- Am         E7          Am       E7
+        Am         E7          Am       E7
  
  Dark party bars, shiny Cadillac cars
  
