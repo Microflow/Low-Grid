@@ -146,13 +146,14 @@ C         C             GGG7G7         CCCGC
 
 Straight into ## After Hours
 
-        C         A7
+          C         A7
         
  If you close the door
  
      Dm OR F              G7
      
  The night could last forever
+ 
            C        A7
            
  Leave the sunshine out
@@ -162,7 +163,7 @@ Straight into ## After Hours
  And say hello to never
  
 Verse:
-         C                              C7
+            C                              C7
          
  All the people are dancing and they're having such fun
  
