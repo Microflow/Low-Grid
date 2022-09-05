@@ -287,6 +287,8 @@ https://www.youtube.com/watch?v=ZhYlOffHn8s
 
 ### Burden to The Lord - Blind Willie Johnson
 
+https://www.youtube.com/watch?v=HcuRODtLOEk
+
 C C C C C dm C C C C Dm C C C C C F
 
 https://chordify.net/chords/take-your-burden-to-the-lord-and-leave-it-there-gospel-tune-on-ukulele-todd-b
