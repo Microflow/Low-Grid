@@ -1190,3 +1190,7 @@ Andre Maurois
 Style is the hallmark of a temperament stamped upon the material at hand. - Andre Maurois
 Style is the hallmark of a temperament stamped upon the material at hand.
 Andre Maurois
+
+
+
+# You know, that's so interesting, but I actually don't care - Dr Ramani. 
