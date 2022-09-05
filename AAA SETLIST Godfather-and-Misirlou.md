@@ -77,49 +77,49 @@ https://chordify.net/chords/take-your-burden-to-the-lord-and-leave-it-there-gosp
 
 If the world from you withholds of its silver and its gold
 
-C                                      F              C
+    C                                      F              C
 
 And you have to get along with meager fare
 
-C                                     G/G7 
+    C                                     G/G7 
 
 Just remember, in his word, how he feeds the little bird
 
-C                                  F                C     
+    C                                  F                C     
 
 Take your burden to the Lord, leave it there
 
-C                       G7             C   
+    C                       G7             C   
 
 Leave it there, leave it there
 
-F                        C 
+    F                        C 
 
 Just take your burden to the Lord oh and leave it there
 
-C                                                 G 
+    C                                                 G 
 
 If you trust and never doubt, he will surely bring you out
 
-C7                                            F                C   
+    C7                                            F                C   
 
 Take your burden to the Lord, leave it there
 
-C                       G              C C C G C
+    C                       G              C C C G C
 
 
 
 Now if your body suffers pain and your health you can't regain
 
-C                        C7                          
+    C                        C7                          
 
-And your soul is slowly sinking in despair take turpentine
+And your soul is slowly sinking in despair (take turpentine)
 
-C                          (C7)    G            
+    C                          (C7)    G            
 
 The Lord knows the pain you feel, he can save and he can heal
 
-C                           Cadd3:2      F               C7=>C  
+    C                           Cadd3:2      F               C7=>C  
 
 Take your burden to the Lord, leave it there
 
@@ -131,15 +131,15 @@ Leave it there, leave it there
 
 Just take your burden to the Lord oh and leave it there
 
-C                                        G G G G G7  
+      C                                        G G G G G7  
 
-If you trust him through your doubt, he will surely bring you out
+If you trust and never doubt, he will surely bring you out
 
-C                                            F                C  
+      C                                            F                C  
 
 Take your burden to the Lord, leave it there
 
-C         C             GGG7G7         CCCGC 
+    C         C             GGG7G7         CCCGC 
 
 
 
