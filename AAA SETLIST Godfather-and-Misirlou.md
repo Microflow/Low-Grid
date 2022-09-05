@@ -162,8 +162,9 @@ Straight into ## After Hours
      
  And say hello to never
  
-Verse:
-            C                              C7
+
+
+             C                              C7
          
  All the people are dancing and they're having such fun
  
