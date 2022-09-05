@@ -58,10 +58,94 @@ https://www.melbay.com/Content/Site161/FilesSamples/1736333048125jp_00000081018.
 
 # Uke
 
+# Take Your Burden / After Hours
+
 ## After Hours Dm can be subbred with F
 
 https://www.youtube.com/watch?v=Hm-kMjaWkYs
 **
+
+
+
+### Burden to The Lord - Blind Willie Johnson
+
+https://www.youtube.com/watch?v=HcuRODtLOEk
+
+C C C C C F G/G7
+
+https://chordify.net/chords/take-your-burden-to-the-lord-and-leave-it-there-gospel-tune-on-ukulele-todd-b
+
+If the world from you withholds of its silver and its gold
+
+C                                      F              C
+
+And you have to get along with meager fare
+
+C                                     G/G7 
+
+Just remember, in his word, how he feeds the little bird
+
+C                                  F                C     
+
+Take your burden to the Lord, leave it there
+
+C                       G7             C   
+
+Leave it there, leave it there
+
+F                        C 
+
+Just take your burden to the Lord oh and leave it there
+
+C                                                 G 
+
+If you trust and never doubt, he will surely bring you out
+
+C7                                            F                C   
+
+Take your burden to the Lord, leave it there
+
+C                       G              C C C G C
+
+
+
+Now if your body suffers pain and your health you can't regain
+
+C                        C7                          
+
+And your soul is slowly sinking in despair take turpentine
+
+C                          (C7)    G            
+
+The Lord knows the pain you feel, he can save and he can heal
+
+C                           Cadd3:2      F               C7=>C  
+
+Take your burden to the Lord, leave it there
+
+          C             G7              C   
+
+Leave it there, leave it there
+
+         F               C  
+
+Just take your burden to the Lord oh and leave it there
+
+C                                        G G G G G7  
+
+If you trust him through your doubt, he will surely bring you out
+
+C                                            F                C  
+
+Take your burden to the Lord, leave it there
+
+C         C             GGG7G7         CCCGC 
+
+
+
+
+Straight into ## After Hours
+
         C         A7
         
  If you close the door
@@ -283,53 +367,6 @@ https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTKve6wz3xMEWvV2IgDQfU5rcEL
 ### Good Chords
 
 https://www.youtube.com/watch?v=ZhYlOffHn8s
-
-
-### Burden to The Lord - Blind Willie Johnson
-
-https://www.youtube.com/watch?v=HcuRODtLOEk
-
-C C C C C dm C C C C Dm C C C C C F
-
-https://chordify.net/chords/take-your-burden-to-the-lord-and-leave-it-there-gospel-tune-on-ukulele-todd-b
-
-If the world from you withholds of its silver and its gold
-
-And you have to get along with meager fare
-
-Just remember, in his word, how he feeds the little bird
-
-Take your burden to the Lord, leave it there
-
-Leave it there, leave it there
-
-Just take your burden to the Lord oh and leave it there
-
-If you trust him through your doubt, he will surely bring you out
-
-Take your burden to the Lord, leave it there
-
-Now if your body suffers pain and your health you can't regain
-
-And your soul is slowly sinking in despair
-
-Jesus knows the pain you feel, he can save and he can heal
-
-Take your burden to the Lord, leave it there
-
-Leave it there, leave it there
-
-Just take your burden to the Lord oh and leave it there
-
-If you trust him through your doubt, he will surely bring you out
-
-Take your burden to the Lord, leave it there
-
-Take your burden to the Lord
-
-Leave it there
-
-
 
 
 ### Alt: Weird E chord.
