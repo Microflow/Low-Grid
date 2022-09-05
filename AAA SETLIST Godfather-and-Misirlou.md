@@ -234,7 +234,7 @@ Bridge:
  
         F                       G
         
- Oh but people look well in the dark
+ Oh but people look glow in the dark
 
  Chorus:
             C         A7
