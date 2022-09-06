@@ -10,28 +10,22 @@
 
 ## Titanium
 
-      C G
-You shout it out
-      Am F
-but I can't hear a word you say
-      C G Am F
-I'm talking loud not saying much
-      C G Am F
-I'm criticized but all your bullets ricochet
-      C G Am F
-You shoot me down, but I get up
-
+### C G Am Am Treble One line
+### C G Em Am 
+    
+You shout it out (C G)
+but I can't hear a word you say (Am Am)   
+I'm talking loud not saying much (C G Am Am)
+I'm criticized but all your bullets ricochet (C G Am F)
+You shoot me down, but I get up C G Am
 
 ## Chorus:
 
-      F G Em
-I'm bulletproof, nothing to lose
-      Am F
-fire away, fire away
-      G Em
-ricochet, you take your aim
-      Am F
-fire away, fire away
+### F G Em Am
+I'm bulletproof, nothing to lose (F G) 
+Fire away, fire away (Em Am)
+Ricochet, you take your aim (F G)
+Fire away, fire away (Em Am)
       G Em
 you shoot me down but I won't fall
       Am - Asus2 - F
@@ -110,13 +104,12 @@ You shoot me down but I won't fall
       Am - Asus2 - F
 I am tita - ni - um
 
-F, G, Em, Am
+    F, G, Em, Am
 
     F, G, Em,
     Am - Asus2 - F (end on that F)
 I am tita - ni - um
 
-Source: www.ukulele-tabs.com
 Titanium (David Guetta) Ukulele Cover Lesson in C with Chords/Lyrics
 
 https://www.youtube.com/watch?v=6aoyWQ-z83A
