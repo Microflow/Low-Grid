@@ -93,6 +93,114 @@ Titanium (David Guetta) Ukulele Cover Lesson in C with Chords/Lyrics
 
 https://www.youtube.com/watch?v=6aoyWQ-z83A
 
+## I knew You Were Trouble
+
+### I Knew You Were Trouble- Ukulele Lesson- Taylor Swift (Todd Downing)
+
+#### Verse
+
+D
+A Major 
+Bminor2222 (All chords)
+G
+
+# Chorus
+
+B Minor 4222
+G 
+A Major
+D  
+
+Once upon a time D
+A few mistakes ago D
+I was in your sights A
+You got me alone A
+You found me B
+You found me B
+You found me G
+I guess you didn't care D
+And I guess I liked that D
+And when I fell hard A
+You took a step back A
+Without me B
+Without me B
+Without me G
+And he's long gone
+When he's next to me
+And I realize
+The blame is on me
+'Cause I knew you were trouble when you walked in
+So shame on me now
+Flew me to places I'd never been
+'Til you put me down, oh
+I knew you were trouble when you walked in
+So, shame on me now
+Flew me to places I'd never been
+Now I'm lyin' on the cold hard ground
+Oh, oh
+Trouble, trouble, trouble
+Oh, oh
+Trouble, trouble, trouble
+No apologies
+He'll never see you cry
+Pretends he doesn't know
+That he's the reason why
+You're drowning
+You're drowning
+You're drowning
+And I heard you moved on
+From whispers on the street
+A new notch in your belt
+Is all I'll ever be
+And now I see
+Now I see
+Now I see
+He was long gone
+When he met me
+And I realize
+The joke is on me, hey
+I knew you were trouble when you walked in (oh)
+So shame on me now
+Flew me to places I'd never been
+'Til you put me down, oh
+I knew you were trouble when you walked in
+So shame on me now
+Flew me to places I'd never been, yeah
+Now I'm lyin' on the cold hard ground
+Oh, oh (yeah)
+Trouble, trouble, trouble
+Oh, oh
+Trouble, trouble, trouble
+And the saddest fear
+Comes creepin' in
+That you never loved me
+Or her
+Or anyone
+Or anything
+Yeah
+I knew you were trouble when you walked in
+So shame on me now
+Flew me to places I'd never been (never been)
+'Til you put me down, oh
+I knew you were trouble when you walked in (knew it right there)
+So shame on me now (knew it right there)
+Flew me to places I'd never been
+(Ooh) now I'm lyin' on the cold hard ground
+Oh, oh
+Trouble, trouble, trouble (oh)
+Oh, oh
+Trouble, trouble, trouble
+I knew you were trouble when you walked in
+Trouble, trouble, trouble
+I knew you were trouble when you walked in
+Trouble, trouble, trouble
+
+
+https://www.youtube.com/watch?v=YDUufRoBBzM
+
+
+
+
 How to play tutorial.
 
 https://www.youtube.com/watch?v=cQ3Y1-DaA84
