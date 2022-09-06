@@ -26,50 +26,29 @@ I'm bulletproof, nothing to lose (F G)
 Fire away, fire away (Em Am)
 Ricochet, you take your aim (F G)
 Fire away, fire away (Em Am)
-      G Em
-you shoot me down but I won't fall
-      Am - Asus2 - F
-I am tita - ni - um
-      G Em
-you shoot me down but I won't fall
-      Am - Asus2 - F
-I am tita - ni - um
+You shoot me down but I won't fall (F G) 
+I am tita - ni - um (Em Am)
+You shoot me down but I won't fall (F G)
+   
+I am tita - ni - um (Em Am)
 
-
-      C G
-Cut me down
-      Am F
-but it's you who'll have further to fall
-      C G Am F
-Ghost town, haunted love
-      C G Am F
-Raise your voice, sticks and stones may break my bones
-      C G Am F
-I'm talking loud not saying much
-
+Cut me down (C G)
+But it's you who'll have further to fall (Am Am)
+Ghost town, haunted love (C G Am)
+Raise your voice, sticks and stones may break my bones (C G Am F)
+I'm talking loud not saying much (C G Am Am)
 
 Chorus:
 
-      F G Em
-I'm bulletproof, nothing to lose
-      Am F
-fire away, fire away
-      G Em
-ricochet, you take your aim
-      Am F
-fire away, fire away
-      G Em
-you shoot me down but I won't fall
-      Am - Asus2 - F
-I am tita - ni - um
-      G Em
-you shoot me down but I won't fall
-      Am - Asus2 - F
-I am tita - ni - um
-
-      G, Em
-      Am - Asus2 - F
-I am tita - ni - um
+I'm bulletproof, nothing to lose (F G)
+Fire away, fire away (Em Am)
+Ricochet, you take your aim (F G)
+Fire away, fire away (Em Am)
+You shoot me down but I won't fall BUILD (F G HIGH)
+I am tita - ni - um (Em Am)
+You shoot me down but I won't fall (F G)
+I am tita - ni - um (Em Am)
+I am tita - ni - um (Em Am)
 
       G, Em
       Am - Asus2 - F
