@@ -10,104 +10,104 @@
 
 ## Titanium
 
-    C G
+      C G
 You shout it out
-    Am F
+      Am F
 but I can't hear a word you say
-    C G Am F
+      C G Am F
 I'm talking loud not saying much
-    C G Am F
+      C G Am F
 I'm criticized but all your bullets ricochet
-    C G Am F
+      C G Am F
 You shoot me down, but I get up
 
 
 ## Chorus:
 
-    F G Em
+      F G Em
 I'm bulletproof, nothing to lose
-    Am F
+      Am F
 fire away, fire away
-    G Em
+      G Em
 ricochet, you take your aim
-    Am F
+      Am F
 fire away, fire away
-    G Em
+      G Em
 you shoot me down but I won't fall
-    Am - Asus2 - F
+      Am - Asus2 - F
 I am tita - ni - um
-    G Em
+      G Em
 you shoot me down but I won't fall
-    Am - Asus2 - F
+      Am - Asus2 - F
 I am tita - ni - um
 
 
-    C G
+      C G
 Cut me down
-    Am F
+      Am F
 but it's you who'll have further to fall
-    C G Am F
+      C G Am F
 Ghost town, haunted love
-    C G Am F
+      C G Am F
 Raise your voice, sticks and stones may break my bones
-    C G Am F
+      C G Am F
 I'm talking loud not saying much
 
 
 Chorus:
 
-    F G Em
+      F G Em
 I'm bulletproof, nothing to lose
-    Am F
+      Am F
 fire away, fire away
-    G Em
+      G Em
 ricochet, you take your aim
-    Am F
+      Am F
 fire away, fire away
-    G Em
+      G Em
 you shoot me down but I won't fall
-    Am - Asus2 - F
+      Am - Asus2 - F
 I am tita - ni - um
-    G Em
+      G Em
 you shoot me down but I won't fall
-    Am - Asus2 - F
+      Am - Asus2 - F
 I am tita - ni - um
 
-    G, Em
-    Am - Asus2 - F
+      G, Em
+      Am - Asus2 - F
 I am tita - ni - um
 
-    G, Em
-    Am - Asus2 - F
+      G, Em
+      Am - Asus2 - F
 I am tita - ni - um
 
 Bridge:
 
-    F G Em
+      F G Em
 Stone-hard, machine gun
-   Am
+      Am
 Firing at the ones who run
-   F G Am
+      F G Am
 stone hard, as bulletproof glass
 
 
 Chorus:
 
-    F G Em
+      F G Em
 You shoot me down but I won't fall
-    Am - Asus2 - F
+      Am - Asus2 - F
 I am tita - ni - um
-    G Em
+      G Em
 You shoot me down but I won't fall
-    Am - Asus2 - F
+      Am - Asus2 - F
 I am tita - ni - um
-    G Em
+      G Em
 You shoot me down but I won't fall
-    Am - Asus2 - F
+      Am - Asus2 - F
 I am tita - ni - um
-    G Em
+      G Em
 You shoot me down but I won't fall
-    Am - Asus2 - F
+      Am - Asus2 - F
 I am tita - ni - um
 
 F, G, Em, Am
