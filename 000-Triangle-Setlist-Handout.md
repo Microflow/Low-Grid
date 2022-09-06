@@ -2,8 +2,6 @@
 
 ## Belle And Sebastian - Lazy Jane Line Painter
 
-
-
 ## Another Sunny Day
 
 ## Perfect
@@ -11,6 +9,121 @@
 ## Chandelier 
 
 ## Titanium
+
+    C G
+You shout it out
+    Am F
+but I can't hear a word you say
+    C G Am F
+I'm talking loud not saying much
+    C G Am F
+I'm criticized but all your bullets ricochet
+    C G Am F
+You shoot me down, but I get up
+
+
+## Chorus:
+
+    F G Em
+I'm bulletproof, nothing to lose
+    Am F
+fire away, fire away
+    G Em
+ricochet, you take your aim
+    Am F
+fire away, fire away
+    G Em
+you shoot me down but I won't fall
+    Am - Asus2 - F
+I am tita - ni - um
+    G Em
+you shoot me down but I won't fall
+    Am - Asus2 - F
+I am tita - ni - um
+
+
+    C G
+Cut me down
+    Am F
+but it's you who'll have further to fall
+    C G Am F
+Ghost town, haunted love
+    C G Am F
+Raise your voice, sticks and stones may break my bones
+    C G Am F
+I'm talking loud not saying much
+
+
+Chorus:
+
+    F G Em
+I'm bulletproof, nothing to lose
+    Am F
+fire away, fire away
+    G Em
+ricochet, you take your aim
+    Am F
+fire away, fire away
+    G Em
+you shoot me down but I won't fall
+    Am - Asus2 - F
+I am tita - ni - um
+    G Em
+you shoot me down but I won't fall
+    Am - Asus2 - F
+I am tita - ni - um
+
+    G, Em
+    Am - Asus2 - F
+I am tita - ni - um
+
+    G, Em
+    Am - Asus2 - F
+I am tita - ni - um
+
+Bridge:
+
+    F G Em
+Stone-hard, machine gun
+   Am
+Firing at the ones who run
+   F G Am
+stone hard, as bulletproof glass
+
+
+Chorus:
+
+    F G Em
+You shoot me down but I won't fall
+    Am - Asus2 - F
+I am tita - ni - um
+    G Em
+You shoot me down but I won't fall
+    Am - Asus2 - F
+I am tita - ni - um
+    G Em
+You shoot me down but I won't fall
+    Am - Asus2 - F
+I am tita - ni - um
+    G Em
+You shoot me down but I won't fall
+    Am - Asus2 - F
+I am tita - ni - um
+
+F, G, Em, Am
+
+    F, G, Em,
+    Am - Asus2 - F (end on that F)
+I am tita - ni - um
+
+Source: www.ukulele-tabs.com
+Titanium (David Guetta) Ukulele Cover Lesson in C with Chords/Lyrics
+
+https://www.youtube.com/watch?v=6aoyWQ-z83A
+
+How to play tutorial.
+
+https://www.youtube.com/watch?v=cQ3Y1-DaA84
 
 ## Take Your Burden / After Hours
 
