@@ -8,6 +8,24 @@
 
 ## Chandelier 
 
+## Chorus F G C C
+
+Im going to swing, from the chandelier
+I'm gonna live like tomorrow doesn't exist
+Like it doesn't exist
+I'm gonna fly like a bird through the night
+Feel my tears as they dry
+
+### Easy
+
+https://www.youtube.com/watch?v=XvHoDj-5qrY
+
+
+
+CHANDELIER - SIA - UKULELE TUTORIAL (complex chords)
+
+https://www.youtube.com/watch?v=3OdBITZBjOQ
+
 ## Titanium
 
 ### C G Am Am Treble One line
