@@ -35,7 +35,7 @@ I am tita - ni - um (Em Am)
 Cut me down (C G)
 But it's you who'll have further to fall (Am Am)
 Ghost town, haunted love (C G Am)
-Raise your voice, sticks and stones may break my bones (C G Am F)
+Raise your voice, sticks and stones may break my bones (C G Am Am)
 I'm talking loud not saying much (C G Am Am)
 
 Chorus:
