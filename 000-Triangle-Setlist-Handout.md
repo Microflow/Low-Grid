@@ -61,11 +61,17 @@ So what went wrong? It was a lie, it crumbled apart
 D                                       G
 Ghost figures of past, present, future haunting the heart
 
+## Somewhere over the Rainbow 
 
+https://www.youtube.com/watch?v=j8i1Cl3PfcE
 
 ## Perfect
 
 ## Chandelier 
+
+### Amazing Instrumental Version
+
+https://www.youtube.com/watch?v=FXmivdj9aNY
 
 ## Chorus F G C C
 
