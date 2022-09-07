@@ -483,7 +483,7 @@ https://www.youtube.com/watch?v=6aoyWQ-z83A
 
 D
 A Major 
-Bminor2222 (All chords)
+Bminor2222 = Better 0222 (All chords)
 G
 
 # Chorus
