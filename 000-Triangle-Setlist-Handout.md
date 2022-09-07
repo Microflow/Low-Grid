@@ -2,6 +2,303 @@
 
 ## Belle And Sebastian - Lazy Jane Line Painter
 
+# Take Your Burden / After Hours
+
+## After Hours Dm can be subbred with F
+
+https://www.youtube.com/watch?v=Hm-kMjaWkYs
+**
+
+
+
+### Burden to The Lord - Blind Willie Johnson
+
+https://www.youtube.com/watch?v=HcuRODtLOEk
+
+C C C C C F G/G7
+
+https://chordify.net/chords/take-your-burden-to-the-lord-and-leave-it-there-gospel-tune-on-ukulele-todd-b
+
+If the world from you withholds of its silver and its gold
+
+    C                                      F              C
+
+And you have to get along with meager fare
+
+    C                                     G/G7 
+
+Just remember, in his word, how he feeds the little bird
+
+    C                                  F                C     
+
+Take your burden to the Lord, leave it there
+
+    C                       G7             C   
+
+Leave it there, leave it there
+
+    F                        C 
+
+Just take your burden to the Lord oh and leave it there
+
+    C                                                 G 
+
+If you trust and never doubt, he will surely bring you out
+
+    C7                                            F                C   
+
+Take your burden to the Lord, leave it there
+
+    C                       G              C C C G C
+
+
+
+Now if your body suffers pain and your health you can't regain
+
+    C                        C7                          
+
+And your soul is slowly sinking in despair (take turpentine)
+
+    C                          (C7)    G            
+
+The Lord knows the pain you feel, he can save and he can heal
+
+    C                           Cadd3:2      F               C7=>C  
+
+Take your burden to the Lord, leave it there
+
+          C             G7              C   
+
+Leave it there, leave it there
+
+         F               C  
+
+Just take your burden to the Lord oh and leave it there
+
+      C                                        G G G G G7  
+
+If you trust and never doubt, he will surely bring you out
+
+      C                                            F                C  
+
+Take your burden to the Lord, leave it there
+
+    C         C             GGG7G7         CCCGC 
+
+
+
+
+Straight into ## After Hours
+
+          C         A7
+        
+ If you close the door
+ 
+     Dm OR F              G7
+     
+ The night could last forever
+ 
+           C        A7
+           
+ Leave the sunshine out
+ 
+     Dm             G7
+     
+ And say hello to never
+ 
+
+
+             C                              C7
+         
+ All the people are dancing and they're having such fun
+ 
+        F                       Fm
+   
+ I wish it could happen to me
+ 
+            C         A7
+            
+ But if you close the door
+ 
+     Dm            G7           C
+     
+ I'd never have to see the day again
+
+
+        C         A7
+        
+ If you close the door
+ 
+     Dm                  G7
+     
+ The night could last forever
+ 
+           C          A7
+           
+ Leave the wine glass out
+ 
+     Dm               G7
+     
+ And drink a toast to never
+
+
+     C                           C7
+     
+ Oh, someday I know someone will look into my eyes
+ 
+            F
+            
+ And say hello
+ 
+                        Fm
+                        
+ You're my very special one
+            
+            C         A7
+ 
+ But if you close the door
+ 
+     Dm            G7          C       -Bass line to Bridge: C - B - Bb -
+ 
+ I'd never have to see the day again
+
+Bridge:
+
+        Am         E7          Am       E7
+ 
+ Dark party bars, shiny Cadillac cars
+ 
+         Am        E7          Am        Am Ab G
+         
+ And the people on subways and trains
+ 
+         Dm          A7           Dm         A7
+         
+ Looking gray in the rain as they stand disarrayed
+ 
+        F                       G
+        
+ Oh but people look glow in the dark
+
+ Chorus:
+ 
+               C         A7
+            
+ And if you close the door
+ 
+     Dm                  G
+     
+ The night could last forever
+ 
+           C        A7
+           
+ Leave the sunshine out
+ 
+     Dm           G
+     
+ And say hello to never
+
+
+         C                              C7
+         
+ All the people are dancing and they're having such fun
+ 
+         F                       Fm
+   
+ I wish it could happen to me
+ 
+              C         A7
+              
+ Cause if you close the door
+ 
+     Dm            G            C
+     
+ I'd never have to see the day again
+
+
+     Dm            G            C       A7
+     
+ I'd never have to see the day again -once more-
+ 
+     Dm            G            C
+     
+ I'd never have to see the day again
+
+## The Velvet Underground
+The Velvet Underground was a pioneering experimental rock band from New York City first active from 1965 to 1973. Its best-known lineup consisted of vocalist/guitarist Lou Reed, bassist/violist John Cale, guitarist Sterling Morrison and drummer Maureen Tucker. The band also collaborated with Nico for their debut album in 1967, under the supervision of producer and pop artist Andy Warhol.
+
+
+## Chords
+
+Eminor Inversions (Many Start on 7th Fret)
+
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTKve6wz3xMEWvV2IgDQfU5rcELoPfRigMalw&usqp=CAU
+### Good Chords
+
+https://www.youtube.com/watch?v=ZhYlOffHn8s
+
+
+### Alt: Weird E chord.
+
+https://tabs.ultimate-guitar.com/tab/belle-and-sebastian/another-sunny-day-ukulele-1282158
+
+# Lazy Jane Line Painter
+
+Working the village shop
+Putting a poster up
+Dreaming of anything
+Dreaming of the time when you're free
+From all the trouble you're in
+In the mud, on your knees
+Trying hard not to please
+Anyone, all the time
+Being a rebel is fine
+But you go all the way to being brutal
+You will have a boy tonight
+You will have a boy tonight
+On the first bus out of town
+On the first bus out of town
+Let's see your kit for games
+All the girls look the same
+You are challenging style for running miles
+You're running miles in some boy's jumper
+Boo to the business world!
+You know a girl who's tax free
+On her back and making plenty cash
+While you are working for the joy of giving
+You will have a boy tonight
+You will have a boy tonight
+On the last bus out of town
+On the last bus out of town
+You will have a boy tonight
+You will have a girl tonight
+And you hope that they will see
+And you hope that they will see
+You are in two minds
+Tossing a coin to decide
+Whether you should tell your folks
+About a dose of thrush you got
+When were licking railings
+But you read in a book
+That you got free in Boots
+There are lotions, there are potions
+You can take to hide your shame
+From all those prying eyes
+Lazy Jane, all the time
+Painting lines
+You are sleeping at bus stops
+Wondering how you got your name
+And what you're going to do about it
+You will have a boy tonight
+You will have a boy tonight
+On the last bus out of town
+On the last bus out of town
+You will have a boy tonight
+Maybe you will have a girl tonight
+And you hope that she will see
+And you hope that she will see
+
+
 ## Another Sunny Day
 
 ## Another Sunny Day (Transpose it -7. Orange and Black Chrome Extension) 
@@ -289,159 +586,6 @@ https://www.youtube.com/watch?v=YDUufRoBBzM
 How to play tutorial.
 
 https://www.youtube.com/watch?v=cQ3Y1-DaA84
-
-## Take Your Burden / After Hours
-
-If the world from you withholds of its silver and its gold
-
-C                                      F              C
-And you have to get along with meager fare
-
-C                                     G/G7 
-Just remember, in his word, how he feeds the little bird
-
-C                                  F                C     
-Take your burden to the Lord, leave it there
-
-C                       G7             C   
-Leave it there, leave it there
-
-F                        C 
-Just take your burden to the Lord oh and leave it there
-
-C                                                 G 
-If you trust and never doubt, he will surely bring you out
-
-C7                                            F                C   
-Take your burden to the Lord, leave it there
-
-C                       G              C C C G C
-Now if your body suffers pain and your health you can't regain
-
-C                        C7                          
-And your soul is slowly sinking in despair (take turpentine)
-
-C                          (C7)    G            
-The Lord knows the pain you feel, he can save and he can heal
-
-C                           Cadd3:2      F               C7=>C  
-Take your burden to the Lord, leave it there
-
-      C             G7              C   
-Leave it there, leave it there
-
-     F               C  
-Just take your burden to the Lord oh and leave it there
-
-  C                                        G G G G G7  
-If you trust and never doubt, he will surely bring you out
-
-  C                                            F                C  
-Take your burden to the Lord, leave it there
-
-C         C             GGG7G7         CCCGC 
-Straight into ## After Hours
-
-      C         A7
-If you close the door
-
- Dm OR F              G7
-The night could last forever
-
-       C        A7
-Leave the sunshine out
-
-      Dm             G7
-And say hello to never
-
-         C                              C7
-All the people are dancing and they're having such fun
-
-       F                       Fm
-I wish it could happen to me
-
-        C         A7
-But if you close the door
-
-     Dm            G7           C
-I'd never have to see the day again
-
-      C         A7
-If you close the door
-
-      Dm                  G7
-The night could last forever
-
-       C          A7
-Leave the wine glass out
-
-      Dm               G7
-And drink a toast to never
-
-       C                           C7
-Oh, someday I know someone will look into my eyes
-
-        F
-And say hello
-
-                    Fm
-You're my very special one
-
-        C         A7
-But if you close the door
-
-     Dm            G7          C       -Bass line to Bridge: C - B - Bb -
-I'd never have to see the day again
-
-Bridge:
-
-      Am         E7          Am       E7
-Dark party bars, shiny Cadillac cars
-
-       Am        E7          Am        Am Ab G
-And the people on subways and trains
-
-       Dm          A7           Dm         A7
-Looking gray in the rain as they stand disarrayed
-
-       F                       G
-Oh but people look glow in the dark
-
-Chorus:
-
-           C         A7
-And if you close the door
-
-     Dm                  G
-The night could last forever
-
-       C        A7
-Leave the sunshine out
-
-     Dm           G
-And say hello to never
-
-     C                              C7
-All the people are dancing and they're having such fun
-
-      F                       Fm
-I wish it could happen to me
-
-          C         A7
-Cause if you close the door
-
-     Dm            G            C
-I'd never have to see the day again
-
-     Dm            G            C       A7
-I'd never have to see the day again -once more-
-
-     Dm            G            C
-I'd never have to see the day again
-
-# Misirlou
-
-Research: Club Dancefloor Anthems. 
 
 # Willow 
 
