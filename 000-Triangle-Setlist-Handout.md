@@ -1,17 +1,23 @@
-# Equipment Jameson: Fully charged iphone/Apple Charger. Speaker. DZN: 
+# Equipment Jameson: Fully charged iphone/Apple Charger. Speaker. DZN: Gtr/Uke/Slide/Fuzz/Cables/Batteries 
 
-## Belle And Sebastian - Lazy Jane Line Painter
+# SETLIST: 
 
-# Take Your Burden / After Hours
+### GTR: Dropped D. Blues jam / Slide. 
+### UKE GOSPEL: Take Your Burden +/ 
+### UKE CHILLLED: After Hours / 
+### UKE POP:    Another Sunny Day  
+### GTR SINGALONG: 20th Century Boy  
+### GTR INSTRUMENTAL: GodfatherSlashRiff/DorianSlide / 
+### GTR EVERYONE DRUMS: Misirlou/Flamenco 
+### GTR SINGALONG: Kinks: Girl You Really Got Me. 
+### GTR SINGALONG: Kinks: All of The Time.  
+### UKE CHORUS SINGALONG: Chandelier. 
+### GTR/UKE SINGALONG: Titanium  
+### UKE SINGALONG Chorus: I Knew You Were Trouble. 
+### GTR: Babies. 
+### GTR SINGALONG: 20th CEntury Boy
 
-## After Hours Dm can be subbred with F
-
-https://www.youtube.com/watch?v=Hm-kMjaWkYs
-**
-
-
-
-### Burden to The Lord - Blind Willie Johnson
+## Burden to The Lord - Blind Willie Johnson -
 
 https://www.youtube.com/watch?v=HcuRODtLOEk
 
@@ -84,6 +90,15 @@ If you trust and never doubt, he will surely bring you out
 Take your burden to the Lord, leave it there
 
     C         C             GGG7G7         CCCGC 
+
+
+
+
+
+## After Hours Dm can be subbred with F
+
+https://www.youtube.com/watch?v=Hm-kMjaWkYs
+**
 
 
 
