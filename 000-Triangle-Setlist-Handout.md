@@ -4,9 +4,9 @@
 
 ## SETLIST: 
 
-##### GTR: Dropped D. Blues jam / Slide. 
-##### UKE GOSPEL: Take Your Burden +/ 
-##### UKE CHILLLED: After Hours / 
+##### 1: GTR: Dropped D. Blues jam / Slide. 
+##### 2: UKE GOSPEL: Take Your Burden +/ 
+##### 3: UKE CHILLLED: After Hours  
 ##### UKE POP:    Another Sunny Day  
 ##### GTR SINGALONG: 20th Century Boy  
 ##### GTR INSTRUMENTAL: GodfatherSlashRiff/DorianSlide / 
@@ -22,7 +22,11 @@
 
 ## Songs 
 
+# 1
+
 ## Dropped D Blues Jam. (LIst Scales)
+
+# 2
 
 ## Burden to The Lord - Blind Willie Johnson -
 
@@ -100,7 +104,7 @@ Take your burden to the Lord, leave it there
 
 
 
-
+# 3
 
 ## After Hours Dm can be subbred with F
 
@@ -242,6 +246,69 @@ Bridge:
 
 ## The Velvet Underground
 The Velvet Underground was a pioneering experimental rock band from New York City first active from 1965 to 1973. Its best-known lineup consisted of vocalist/guitarist Lou Reed, bassist/violist John Cale, guitarist Sterling Morrison and drummer Maureen Tucker. The band also collaborated with Nico for their debut album in 1967, under the supervision of producer and pop artist Andy Warhol.
+
+# 4
+
+## Another Sunny Day
+
+## Another Sunny Day (Transpose it -7. Orange and Black Chrome Extension) 
+
+THE HIGH NOTES ARE HARD. Should I sing low or high? 
+
+(G High inversion: 0,11,10,10)
+(D High inversion: 7,6,5,5 OR 9,9,10,9 (good for flamenco slow strum, suspended feel0
+(Play C as Barre, not open, 3rd Fret 5,4,3,3). 
+(A minor triangle shape, 5,4,5,0). 
+(E minor 0777 with 4:79 flourish. Melody 4:7,9,7 3: 8,7)
+
+UKE SOLO:
+
+Major scale 0777, on lowest two strings. Then to G. 
+
+Guitar: D A Em G
+Uke: G D Am C 
+
+INTRO: Strum hard with pared down G chord. 
+
+~O~
+
+FIRST VERSE LOWER?: 
+
+### Another sunny day, I met you up in the garden G D
+### You were digging plants, I dug you, beg your pardon Am Em
+### I took a photograph of you in herbaceous border C C G
+### It broke the heart of men and flowers and girls and trees
+
+~O~
+
+### Another rainy day, we're trapped inside with a train set G D
+### Chocolate on the boil, steamy windows when we met Am Em   
+### You've got the attic window looking out on the cathedral C G
+### And on a Sunday evening bells ring out in the dusk D G
+  
+
+
+### Optional
+
+I thought it was for real, babies, rings and fools kneeling (Babies, rings and fools kneeling) G D
+We're playing for our lives, the referee gives us fuck all Am Em
+I saw you in the corner of my eye on the sidelines C G
+Your dark mascara bids me to historical deeds D G
+
+
+### Good
+
+There's something in my eye, a little midge so beguiling
+G                                                 D
+Sacrificed his life to bring us both eye to eye
+Am                                                Em 
+And words of pledging trust and lifetimes stretching forever
+C                                                G
+So what went wrong? It was a lie, it crumbled apart
+D                                       G
+Ghost figures of past, present, future haunting the heart
+
+
 
 
 ## Chords
