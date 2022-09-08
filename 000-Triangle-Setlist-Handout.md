@@ -1,21 +1,28 @@
-# Equipment Jameson: Fully charged iphone/Apple Charger. Speaker. DZN: Gtr/Uke/Slide/Fuzz/Cables/Batteries 
+#### EQUIPMENT 
+#### Jameson: Fully charged iphone/Apple Charger. Speaker. 
+#### DZN: Gtr/Uke/Slide/Fuzz/Cables/Batteries 
 
-# SETLIST: 
+## SETLIST: 
 
-### GTR: Dropped D. Blues jam / Slide. 
-### UKE GOSPEL: Take Your Burden +/ 
-### UKE CHILLLED: After Hours / 
-### UKE POP:    Another Sunny Day  
-### GTR SINGALONG: 20th Century Boy  
-### GTR INSTRUMENTAL: GodfatherSlashRiff/DorianSlide / 
-### GTR EVERYONE DRUMS: Misirlou/Flamenco 
-### GTR SINGALONG: Kinks: Girl You Really Got Me. 
-### GTR SINGALONG: Kinks: All of The Time.  
-### UKE CHORUS SINGALONG: Chandelier. 
-### GTR/UKE SINGALONG: Titanium  
-### UKE SINGALONG Chorus: I Knew You Were Trouble. 
-### GTR: Babies. 
-### GTR SINGALONG: 20th CEntury Boy
+##### GTR: Dropped D. Blues jam / Slide. 
+##### UKE GOSPEL: Take Your Burden +/ 
+##### UKE CHILLLED: After Hours / 
+##### UKE POP:    Another Sunny Day  
+##### GTR SINGALONG: 20th Century Boy  
+##### GTR INSTRUMENTAL: GodfatherSlashRiff/DorianSlide / 
+##### GTR EVERYONE DRUMS: Misirlou/Flamenco 
+##### GTR INSTRUMENTAL: Amazing Grace 
+##### GTR SINGALONG: Kinks: Girl You Really Got Me. 
+##### GTR SINGALONG: Kinks: All of The Time.  
+##### UKE CHORUS SINGALONG: Chandelier. 
+##### GTR/UKE SINGALONG: Titanium  
+##### UKE SINGALONG Chorus: I Knew You Were Trouble. 
+##### GTR: Babies. 
+##### GTR SINGALONG: 20th Century Boy
+
+## Songs 
+
+## Dropped D Blues Jam. (LIst Scales)
 
 ## Burden to The Lord - Blind Willie Johnson -
 
@@ -98,12 +105,6 @@ Take your burden to the Lord, leave it there
 ## After Hours Dm can be subbred with F
 
 https://www.youtube.com/watch?v=Hm-kMjaWkYs
-**
-
-
-
-
-Straight into ## After Hours
 
           C         A7
         
