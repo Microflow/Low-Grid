@@ -1,6 +1,6 @@
 #### EQUIPMENT 
 #### Jameson: Fully charged iphone/Apple Charger. Speaker. 
-#### DZN: Gtr/Uke/Slide/Fuzz/Cables/Batteries 
+#### DZN: Gtr/Uke/Slide/Fuzz/Cables/Batteries TODO: Make Lyric Handout GDoc JSans. Make Commercial and Extended List.  
 
 ## SETLIST: 
 
