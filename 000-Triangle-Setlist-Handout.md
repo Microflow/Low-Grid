@@ -353,6 +353,41 @@ I wanna hang your head in the falling rain
 Ah, oh yeah
 Wow!
 
+# 6 and 7
+
+# 8 Amazing Grace
+
+Amazing grace how sweet the sound
+That saved a wretch like me
+I once was lost, but now I'm found
+Was blind but now I see
+
+It was grace that taught my heart to fear
+And grace my fears relieved
+How precious did that grace appear
+The hour I first believed
+
+Through many dangers, toils, and snares
+I have already come
+This grace that brought me safe thus far
+And grace will lead me home
+
+When we've been here ten thousand years
+Bright, shining as the sun
+We've no less days to sing God's praise
+Than when we first begun
+
+Amazing grace how sweet the sound
+That saved a wretch like me
+I once was lost, but now I'm found
+Was blind but now I see
+
+# 9
+
+## Girl, You Really Got Me. 
+
+
+
 ## Perfect
 
 ## Chandelier 
