@@ -7,18 +7,18 @@
 ##### 1: GTR: Dropped D. Blues jam / Slide. 
 ##### 2: UKE GOSPEL: Take Your Burden +/ 
 ##### 3: UKE CHILLLED: After Hours  
-##### UKE POP:    Another Sunny Day  
-##### GTR SINGALONG: 20th Century Boy  
-##### GTR INSTRUMENTAL: GodfatherSlashRiff/DorianSlide / 
-##### GTR EVERYONE DRUMS: Misirlou/Flamenco 
-##### GTR INSTRUMENTAL: Amazing Grace 
-##### GTR SINGALONG: Kinks: Girl You Really Got Me. 
-##### GTR SINGALONG: Kinks: All of The Time.  
-##### UKE CHORUS SINGALONG: Chandelier. 
-##### GTR/UKE SINGALONG: Titanium  
-##### UKE SINGALONG Chorus: I Knew You Were Trouble. 
-##### GTR: Babies. 
-##### GTR SINGALONG: 20th Century Boy
+##### 4: UKE POP:    Another Sunny Day  
+##### 5: GTR SINGALONG: 20th Century Boy  
+##### 6: GTR INSTRUMENTAL: GodfatherSlashRiff/DorianSlide / 
+##### 7: GTR EVERYONE DRUMS: Misirlou/Flamenco 
+##### 8: GTR INSTRUMENTAL: Amazing Grace 
+##### 9: GTR SINGALONG: Kinks: Girl You Really Got Me. 
+##### 10: GTR SINGALONG: Kinks: All of The Time.  
+##### 11: UKE CHORUS SINGALONG: Chandelier. 
+##### 12: GTR/UKE SINGALONG: Titanium  
+##### 13: UKE SINGALONG Chorus: I Knew You Were Trouble. 
+##### 14: GTR: Pulp: Babies. 
+##### 15: Hello Kitty Tissues Burn My Eyes
 
 ## Songs 
 
@@ -308,142 +308,50 @@ So what went wrong? It was a lie, it crumbled apart
 D                                       G
 Ghost figures of past, present, future haunting the heart
 
+# 5
 
+## 20th Century Boy
 
-
-## Chords
-
-Eminor Inversions (Many Start on 7th Fret)
-
-https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTKve6wz3xMEWvV2IgDQfU5rcELoPfRigMalw&usqp=CAU
-### Good Chords
-
-https://www.youtube.com/watch?v=ZhYlOffHn8s
-
-
-### Alt: Weird E chord.
-
-https://tabs.ultimate-guitar.com/tab/belle-and-sebastian/another-sunny-day-ukulele-1282158
-
-# Lazy Jane Line Painter
-
-Working the village shop
-Putting a poster up
-Dreaming of anything
-Dreaming of the time when you're free
-From all the trouble you're in
-In the mud, on your knees
-Trying hard not to please
-Anyone, all the time
-Being a rebel is fine
-But you go all the way to being brutal
-You will have a boy tonight
-You will have a boy tonight
-On the first bus out of town
-On the first bus out of town
-Let's see your kit for games
-All the girls look the same
-You are challenging style for running miles
-You're running miles in some boy's jumper
-Boo to the business world!
-You know a girl who's tax free
-On her back and making plenty cash
-While you are working for the joy of giving
-You will have a boy tonight
-You will have a boy tonight
-On the last bus out of town
-On the last bus out of town
-You will have a boy tonight
-You will have a girl tonight
-And you hope that they will see
-And you hope that they will see
-You are in two minds
-Tossing a coin to decide
-Whether you should tell your folks
-About a dose of thrush you got
-When were licking railings
-But you read in a book
-That you got free in Boots
-There are lotions, there are potions
-You can take to hide your shame
-From all those prying eyes
-Lazy Jane, all the time
-Painting lines
-You are sleeping at bus stops
-Wondering how you got your name
-And what you're going to do about it
-You will have a boy tonight
-You will have a boy tonight
-On the last bus out of town
-On the last bus out of town
-You will have a boy tonight
-Maybe you will have a girl tonight
-And you hope that she will see
-And you hope that she will see
-
-
-## Another Sunny Day
-
-## Another Sunny Day (Transpose it -7. Orange and Black Chrome Extension) 
-
-THE HIGH NOTES ARE HARD. Should I sing low or high? 
-
-(G High inversion: 0,11,10,10)
-(D High inversion: 7,6,5,5 OR 9,9,10,9 (good for flamenco slow strum, suspended feel0
-(Play C as Barre, not open, 3rd Fret 5,4,3,3). 
-(A minor triangle shape, 5,4,5,0). 
-(E minor 0777 with 4:79 flourish. Melody 4:7,9,7 3: 8,7)
-
-UKE SOLO:
-
-Major scale 0777, on lowest two strings. Then to G. 
-
-Guitar: D A Em G
-Uke: G D Am C 
-
-INTRO: Strum hard with pared down G chord. 
-
-~O~
-
-FIRST VERSE LOWER?: 
-
-### Another sunny day, I met you up in the garden G D
-### You were digging plants, I dug you, beg your pardon Am Em
-### I took a photograph of you in herbaceous border C C G
-### It broke the heart of men and flowers and girls and trees
-
-~O~
-
-### Another rainy day, we're trapped inside with a train set G D
-### Chocolate on the boil, steamy windows when we met Am Em   
-### You've got the attic window looking out on the cathedral C G
-### And on a Sunday evening bells ring out in the dusk D G
-  
-
-
-### Optional
-
-I thought it was for real, babies, rings and fools kneeling (Babies, rings and fools kneeling) G D
-We're playing for our lives, the referee gives us fuck all Am Em
-I saw you in the corner of my eye on the sidelines C G
-Your dark mascara bids me to historical deeds D G
-
-
-### Good
-
-There's something in my eye, a little midge so beguiling
-G                                                 D
-Sacrificed his life to bring us both eye to eye
-Am                                                Em 
-And words of pledging trust and lifetimes stretching forever
-C                                                G
-So what went wrong? It was a lie, it crumbled apart
-D                                       G
-Ghost figures of past, present, future haunting the heart
-
-## Somewhere over the Rainbow 
-
-https://www.youtube.com/watch?v=j8i1Cl3PfcE
+Oww!
+(Ahh)
+Friends say it's fine, friends say it's good
+Everybody says it's just like Robin Hood
+Yeah!
+I move like a cat, charge like a ram
+Sting like a bee, babe, I wanna be your man, hey!
+Well, it's plain to see you were meant for me, yeah
+I'm your boy, your 20th century toy
+Yeah!
+Friends say it's fine, my friends say it's good
+Everybody says it's just like Robin Hood
+Fly like a plane, drive like a car
+Bawl like a hound, babe, I wanna be your man, hoo!
+Well, it's plain to see you were meant for me
+And I'm your toy, your 20th century boy
+20th century toy, I wanna be your boy-ah
+20th century toy, I wanna be your boy
+20th century toy, I wanna be your boy
+20th century toy, I wanna be your boy
+Friends say it's fine, friends say it's good
+Everybody says it's just like Robin Hood, nah, nah
+Move like a cat, charge like a ram
+Sting like a bee
+Oh, oh, babe, I wanna be your man
+And, um, and, oh, oh
+Well it's plain to see you were meant for me
+And I'm your toy, your 20th century boy
+20th century toy, I wanna be your boy
+20th century toy, I wanna be your boy
+20th century toy, I wanna be your toy
+20th century boy-ah, I wanna be your toy
+Yeah-ah
+Ah, oh, oh, yeah
+My friends say it's fine, they say it's good
+I don't believe it's like Robin Hood
+I'm like a car, I drive like a plane
+I wanna hang your head in the falling rain
+Ah, oh yeah
+Wow!
 
 ## Perfect
 
@@ -677,3 +585,68 @@ Excellent Tutorial
 ## Taylor Swift - Willow (EASY Ukulele Tutorial)
 
 https://www.youtube.com/watch?v=frPBnFM9X9g
+
+## Later
+
+
+# Lazy Jane Line Painter
+
+Working the village shop
+Putting a poster up
+Dreaming of anything
+Dreaming of the time when you're free
+From all the trouble you're in
+In the mud, on your knees
+Trying hard not to please
+Anyone, all the time
+Being a rebel is fine
+But you go all the way to being brutal
+You will have a boy tonight
+You will have a boy tonight
+On the first bus out of town
+On the first bus out of town
+Let's see your kit for games
+All the girls look the same
+You are challenging style for running miles
+You're running miles in some boy's jumper
+Boo to the business world!
+You know a girl who's tax free
+On her back and making plenty cash
+While you are working for the joy of giving
+You will have a boy tonight
+You will have a boy tonight
+On the last bus out of town
+On the last bus out of town
+You will have a boy tonight
+You will have a girl tonight
+And you hope that they will see
+And you hope that they will see
+You are in two minds
+Tossing a coin to decide
+Whether you should tell your folks
+About a dose of thrush you got
+When were licking railings
+But you read in a book
+That you got free in Boots
+There are lotions, there are potions
+You can take to hide your shame
+From all those prying eyes
+Lazy Jane, all the time
+Painting lines
+You are sleeping at bus stops
+Wondering how you got your name
+And what you're going to do about it
+You will have a boy tonight
+You will have a boy tonight
+On the last bus out of town
+On the last bus out of town
+You will have a boy tonight
+Maybe you will have a girl tonight
+And you hope that she will see
+And you hope that she will see
+
+
+## Somewhere over the Rainbow 
+
+https://www.youtube.com/watch?v=j8i1Cl3PfcE
+
