@@ -1,6 +1,8 @@
 #### EQUIPMENT 
 #### Jameson: Fully charged iphone/Apple Charger. Speaker. 
-#### DZN: Gtr/Uke/Slide/Fuzz/Cables/Batteries TODO: Make Lyric Handout GDoc JSans. Make Commercial and Extended List.  
+#### DZN: Gtr/Uke/Slide/Fuzz/Cables/Batteries 
+
+#### TODO: Make Lyric Handout GDoc JSans. Make Commercial and Extended List. Make Fretboard Chart. Ionian/Blues/Phrygian etc. Buy Capo. Build harmonic capo? Make PVC Bassoon.   
 
 ## SETLIST: 
 
@@ -20,14 +22,14 @@
 ##### 14: GTR: Pulp: Babies. 
 ##### 15: Hello Kitty Tissues Burn My Eyes
 
-### UKE SONGS: FTATRACDC/GTFO/AMAZINGGRACE // WILLOW/ALLTHETIME // LEAVEITTHERE/AFTERHOURS // ANOTHERSUNNYDAY/LAZYJANE
-### YOUREALLYGOTME/TITANIUM // 20THCENTURYBOY/CHANDELIER // TROUBLE / BABIES // HKTSUS/GODFATHER FLAMENCO/MISIRLOU
+##### UKE SONGS: FTATRACDC/GTFO/AMAZINGGRACE // WILLOW/ALLTHETIME // LEAVEITTHERE/AFTERHOURS // ANOTHERSUNNYDAY/LAZYJANE
+##### YOUREALLYGOTME/TITANIUM // 20THCENTURYBOY/CHANDELIER // TROUBLE / BABIES // HKTSUS/GODFATHER FLAMENCO/MISIRLOU
 
 ## Songs 
 
 # 1
 
-## Dropped D Blues Jam. (LIst Scales)
+## Dropped D Blues Jam. (List Scales)
 
 # 2
 
