@@ -4,6 +4,10 @@
 
 #### TODO: Make Lyric Handout GDoc JSans. Make Commercial and Extended List. Make Fretboard Chart. Ionian/Blues/Phrygian etc. Buy Capo. Build harmonic capo? Make PVC Bassoon.   
 
+### “You should never be comfortable, man. Being comfortable fouled up a lot of musicians” – Miles Davis // 
+### “Music is your own experience, your own thoughts, your wisdom. If you don’t live it, it won’t come out of your horn. They teach you there’s a boundary line to music. But, man, there’s no boundary line to art” – Charlie Parker // ### “There are four qualities essential to a great jazzman. they are taste, courage, individuality, and irreverence” 
+
+
 ## SETLIST: 
 
 ##### 1: GTR: Dropped D. Blues jam / Slide. 
