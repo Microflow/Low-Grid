@@ -626,6 +626,8 @@ Excellent Tutorial
 
 https://www.youtube.com/watch?v=frPBnFM9X9g
 
+#### Voise
+
 Vanilla verse: Em D Em D Em D C
 
 ## Chord Subsitutes
@@ -642,6 +644,16 @@ Rough on the surface but you cut through like a knife
 And if it was an open-shut case
 I never would've known from that look on your face
 Lost in your current like a priceless wine
+
+#### Chorus
+
+G D Am (high or Low) 2002
+Stray: Em / 2002
+Follow G
+(for) you D
+hand Am (darkquickly to seas of pearls)
+(wreck my) plans Em (0422)
+
 The more that you say
 The less I know
 Wherever you stray
