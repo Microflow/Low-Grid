@@ -621,6 +621,68 @@ Excellent Tutorial
 
 https://www.youtube.com/watch?v=frPBnFM9X9g
 
+Vanilla verse: Em D Em D Em D C
+
+## Chord Subsitutes
+
+Em 0422 Em 0422 
+Em 2020
+C Tritone Sub: 0023 
+C Ghost Chord Sub: 0203
+D (Second Chord) Subs: 0220 // 0230  
+
+
+I'm like the water when your ship rolled in that night
+Rough on the surface but you cut through like a knife
+And if it was an open-shut case
+I never would've known from that look on your face
+Lost in your current like a priceless wine
+The more that you say
+The less I know
+Wherever you stray
+I follow
+I'm begging for you to take my hand
+Wreck my plans
+That's my man
+Life was a willow and it bent right to your wind (oh)
+Head on the pillow, I could feel you sneaking in
+As if you were a mythical thing
+Like you were a trophy or a champion ring
+And there was one prize I'd cheat to win
+The more that you say
+The less I know
+Wherever you stray
+I follow
+I'm begging for you to take my hand
+Wreck my plans
+That's my man
+You know that my train could take you home
+Anywhere else is hollow
+I'm begging for you to take my hand
+Wreck my plans
+That's my man
+Life was a willow and it bent right to your wind (oh)
+They count me out time and time again
+Life was a willow and it bent right to your wind (oh)
+But I come back stronger than a 90's trend
+Wait for the signal and I'll meet you after dark
+Show me the places where the others gave you scars
+Now this is an open-shut case
+Guess I should've known from the look on your face
+Every bait and switch was a work of art
+The more that you say
+The less I know
+Wherever you stray
+I follow
+I'm begging for you to take my hand
+Wreck my plans
+That's my man
+You know that my train could take you home
+Anywhere else is hollow
+I'm begging for you to take my hand
+Wreck my plans
+That's my man
+
 ## Later
 
 
