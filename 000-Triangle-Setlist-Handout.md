@@ -625,11 +625,11 @@ Vanilla verse: Em D Em D Em D C
 
 ## Chord Subsitutes
 
-Em 0422 Em 0422 
+Em 0422 Em 0422 - Tense Progression, at start. 
 Em 2020
 C Tritone Sub: 0023 
 C Ghost Chord Sub: 0203
-D (Second Chord) Subs: 0220 // 0230  
+D (Second Chord) Subs: 0220 // 0230 // 2020 //2200 - Use different versions.  
 
 
 I'm like the water when your ship rolled in that night
