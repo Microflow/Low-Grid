@@ -774,6 +774,71 @@ https://www.youtube.com/watch?v=j8i1Cl3PfcE
 
 Uke or Electric guitar. Whisper it like. 
 
+Came from Dm
+Ireland F
+For Dm
+Ground F
+Came to bet Dm
+Fortune F
+West C
+Plough Dm
+
+Scarecrow Bb
+Garden F
+Looks like C
+Fer Dm
+
+Lations F
+feet in the (River) Dm
+
+JAM BUILD UP 4/4 (First weekend summer)
+
+I know every single fence post
+Every rock to go around
+I've been starin' at the red oak
+They will never lay me down
+
+
+
+Well, he came from Northern Ireland
+Searchin' for the free man's ground
+And he came to bet his fortune
+On a West Virginia plow
+He built a house of timber
+And raised a redhead son
+Then they worked the land together
+And prayed the rain would come
+There's a scarecrow in the garden
+That looks like Lucifer
+And I've been readin' Revelations
+With my bare feet in the river
+Well, the readhead son got older
+And took a brown eyed wife
+And the fields were green as dollars
+'Cause the dirt was black as night
+I came in late September
+The youngest one of three
+And my sisters off and married
+So the land was left to me
+There's a scarecrow in the garden
+That looks like Lucifer
+And I've been readin' Revelations
+With my bare feet in the river
+I know every single fence post
+Every rock to go around
+I've been starin' at the red oak
+Where I know they'll lay me down
+The fields ain't what they once were
+The rains just seem to flood
+And I've been thinkin' 'bout that river
+Wonderin' how it turns to blood
+I've been sittin' here all mornin'
+I was sittin' here all night
+There's a Bible in my left hand
+And a pistol in my right
+
+
+
 #### Backing Audacity Track 
 
 (Upload it to Youtube, so anyone can Dload it) FSA, Mogwai. Some of your stuff with Lucas. Dub. Funk. 
