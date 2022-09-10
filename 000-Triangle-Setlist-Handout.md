@@ -770,6 +770,9 @@ And you hope that she will see
 
 https://www.youtube.com/watch?v=j8i1Cl3PfcE
 
+#### Scarecrow in the Garden
+
+Uke or Electric guitar. Whisper it like. 
 
 #### Backing Audacity Track 
 
