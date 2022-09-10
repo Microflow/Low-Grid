@@ -793,6 +793,8 @@ feet in the (River) Dm
 
 JAM BUILD UP 4/4 (First weekend summer)
 
+C C C Bb Dm
+
 I know every single fence post
 Every rock to go around
 I've been starin' at the red oak
