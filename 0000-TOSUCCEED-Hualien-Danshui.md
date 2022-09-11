@@ -1,0 +1,29 @@
+# How Can I Reduce Scope Now? | MUSIC ALL THE TIME
+
+### MAKE SAX DOC | TIDY HOUSE | RESEARCH DEHUMIDIFICATION | 
+### MEET BARBIE AT 12 | MINT SPRAY WASH CLOTHES | FINALIZE WITH TYLER | PHONE Z? 
+### RELAUNCH DCOIN | LONG: OWEN LETTER
+
+
+
+- Get gmail old phone number ending in 092. 
+
+# TOTRAVEL
+
+
+## TOCONTACT 
+
+- Find 98 Bar on FB.
+
+## TOTRAVEL
+
+SHUT DOWN FB AT SOME POINT. MOVE BEST TO INSTA.
+
+## TOBUY
+
+- MILLET
+- Limes 
+
+## TOTEACH
+
+- Check PRs OK.
