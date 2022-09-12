@@ -1,0 +1,7 @@
+## By Jesse Dinkin in Self-Taught Programmers
+
+Just a thought: I've taught quite a few people the basics of programming, and through doing that, I've developed a theory that the core tenets of most programming that people do in mainstream imperative languages can be boiled down to seven "universal basics". These are, in the order they should be taught, output, variables, input, conditionals (if statements), loops (while and for), arrays/lists, and functions.
+Input and output should initially be taught just in the context of text and the console, but should then be broadened to file i/o, GUIs, and networks.
+Variables should initially be taught as numbers, booleans, characters and strings, and null values, and then different methods of encoding them should be elaborated upon.
+Once a novice understands arrays and functions, objects can be explained as arrays of variables and functions where every element has a string alias, and a class can be explained as a blueprint for an object.
+Learning to program competently can take months to years, but I think a total newbie could form a simple but helpful understanding of the seven universal basics in an hour or less if explained well enough, and with that understanding could begin to really understand programming as they experiment with it.
