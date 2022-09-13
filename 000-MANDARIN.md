@@ -10,6 +10,10 @@ https://youtu.be/6rBdlcV3Ank
 
 https://www.youtube.com/watch?v=un0-7NMHku0
 
+### 28 Resultative Verbs
+
+https://www.youtube.com/watch?v=P_2ZUclowjw
+
 ### A WALK IN A CHINESE WET MARKET
 
 https://www.youtube.com/watch?v=ZoYg34o8rqI
