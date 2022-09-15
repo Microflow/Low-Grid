@@ -7,6 +7,8 @@
 ### “You should never be comfortable, man. Being comfortable fouled up a lot of musicians” – Miles Davis // 
 ### “Music is your own experience, your own thoughts, your wisdom. If you don’t live it, it won’t come out of your horn. They teach you there’s a boundary line to music. But, man, there’s no boundary line to art” – Charlie Parker // ### “There are four qualities essential to a great jazzman. they are taste, courage, individuality, and irreverence” 
 
+#### DRUMS: 1. 4/4. 2. Basic Swing. 3. Plastikman beat. 4. Juzzie Smith Beat.  
+
 
 ## SETLIST: 
 
