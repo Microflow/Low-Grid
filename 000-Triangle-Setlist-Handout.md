@@ -9,6 +9,8 @@
 
 #### DRUMS: 1. 4/4. 2. Basic Swing. 3. Plastikman beat. 4. Juzzie Smith Beat.  
 
+#### MBV: Stretch speakers from mic. Work out various methods.
+
 
 ## SETLIST: 
 
