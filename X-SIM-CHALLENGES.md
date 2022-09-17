@@ -1,6 +1,3 @@
-# Get this done, but listen to good music when doing it. 
-
-https://www.youtube.com/watch?v=mkxz3nU5vOI
 
 TITLE:
 
@@ -121,3 +118,7 @@ ADD TO SIG
 SIM participants, can you swear against this?
 
 Those who can swear against all of them, may stay. 
+
+# Get this done, but listen to good music when doing it. 
+
+https://www.youtube.com/watch?v=mkxz3nU5vOI
