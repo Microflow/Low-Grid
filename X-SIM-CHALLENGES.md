@@ -4,47 +4,60 @@ https://www.youtube.com/watch?v=mkxz3nU5vOI
 
 TITLE:
 
-Challenge to Stephen Goedhart, Dan Starman, Heeren Loo Staff, AMC (American Movie Comapny), Tunahan Yaylan, Adman Aren, Michael Wang
+Challenge to Stephen Goedhart, Dan Starman, Heeren Loo Staff, AMC (American Movie Company), Tunahan Yaylan, Adman Aren, Michael Wang
 
-## Penalties for Deleting this thread. 
+[b]Penalties for Deleting this thread.[/b] 
 
 - Every time this thread is deleted, more people will be added to the list. 
-- By deleting this thread, you agree to
+- By deleting this thread, you fully agree to the terms within. 
 
-### ATTENTION, THIS IS A PRIVATE REALITY.
+[b] ATTENTION, THIS IS A PRIVATE REALITY.[/b]
 
 If you wish to continue in this private reality, please rebut all of these statements on the following document. 
 
-If you do not rebut them within 3 days, they will be considered truth, and it will be taken as full agreement. 
+If you do not rebut them within 3 days, you fully agree to the terms. 
 
-Please note, it is known that not all statements are true for all of you, but 
+Please note, it is known that not all of the following statements are true for all of you, but most of them will be true for all of you. Due to the severity of your crimes, (murder, pedophilia, child sacrifice) if only one of the statements is true, you deserve the death penalty. 
 
-[b]Statement One:[/b] You are pedophiles. You take part in abusive activities with children. You therefore accept the death penalty, and fully, willingly agree to be spiritually annihilated, and return all the energy you stole to myself, and the rightful owners immediately. 
+I swear under penalty of perjury, that the following Seven Statements are true, to the best of my knowledge: 
 
-[b]Statement Two:[/b] You have sacrificed children in black magic rituals. You take part in abusive activities with children. You therefore accept the death penalty, and fully, willingly agree to be spiritually annihilated and return all the energy you stole to myself, and the rightful owners immediately. 
+My written word shall carry greater legal weight than my word on other planes. 
 
-[b]Statement Three:[/b] You knowingly work with other pedophiles who take part in abusive activities with children. You therefore accept the death penalty, and fully, willingly agree to be spiritually annihilated, and return all the energy you stole to myself, and the rightful owners immediately. 
+Signed and Sworn,
 
-[b]Statement Four:[/b] You have murdered myself, and others, in past lives. You have also attempted to get me to commit suicide, or manifest my own death:
+Daozen.
 
-Tunahan: "Why don't you shoot yourself. June 2021"
+[b]Seven Statements[/b]
 
-Dan Starman: "We're going to be chased through the woods by Boston Dynamics Robots." 
+Stephen Goedhart, Dan Starman, Adamn Aren, 
+
+[b]Statement One:[/b] You are pedophiles. You take part in abusive activities with children. You therefore accept the death penalty, and fully, willingly agree to be spiritually and physically and physically annihilated, and return all the energy you stole to myself, and the rightful owners immediately. 
+
+[b]Statement Two:[/b] You have sacrificed children in black magic rituals. You take part in abusive activities with children. You therefore accept the death penalty, and fully, willingly agree to be spiritually and physically annihilated and return all the energy you stole to myself, and the rightful owners immediately. 
+
+[b]Statement Three:[/b] You knowingly work with other pedophiles who take part in abusive activities with children. You therefore accept the death penalty, and fully, willingly agree to be spiritually and physically annihilated, and return all the energy you stole to myself, and the rightful owners immediately. 
+
+[b]Statement Four:[/b] You have murdered myself, and others, in past lives. You have also attempted to get me to commit suicide, or manifest my own death, in this current life :
+
+[b]Tunahan:[/b] "Why don't you shoot yourself?" June 2021
+
+[b]Dan Starman:[/b] "We're going to be chased through the woods by Boston Dynamics Robots." - April 2020
 
 It has been hinted very strongly by several posters that the entity that calls itself Stephen Goedhart ordered my death, in Spring 2021. 
 
-You all (Stephen Goedhart, Dan Starman, Tunahan Yaylan) therefore accept the death penalty, and fully, willingly agree to be spiritually annihilated, and return all the energy you stole to myself, and the rightful owners immediately. 
+You all (Stephen Goedhart, Dan Starman, Tunahan Yaylan) therefore accept the death penalty, and fully, willingly agree to be spiritually and physically annihilated, and return all the energy you stole to myself, and the rightful owners immediately. 
 
-[b]Statement Five:[/b] You have refused all attempts to resolve the situation on emails for over 18 months. You have all refused, passively or actively, to speak under peanlty of perjury. Your rights in this reality are hereby VOIDED.  
+[b]Statement Five:[/b] You have refused all attempts to resolve the situation on emails for over 18 months. You have all refused, passively or actively, to speak under penalty of perjury. As you are neither gentlemen, nor decent human beings, nor herre ingood faith, your rights in this reality are hereby VOIDED.  
 
-[b]Statement Six:[/b] You have attempted to steal, block, or not pay funds due to myself and others. You therefore accept the death penalty, and fully, willingly agree to be spiritually annihilated, and return all the energy you stole to myself, and the rightful owners immediately. 
+[b]Statement Six:[/b] You have attempted to steal, block, or not pay funds due to myself and others. You therefore accept the death penalty, and fully, willingly agree to be spiritually and physically annihilated, and return all the energy you stole to myself, and the rightful owners immediately. 
 
-[b]Statement Seven[/b] The Pedophile Dan Starman/King Annnu, has attempted to block attempts to turn this planet ito a paradise, preferring it to be a dystopian farm for his own pedophile pleasure. Dan Starman, and all of his supporters at Heeren Loo, therefore accept the death penalty, and fully, willingly agree to be spiritually annihilated, and return all the energy you stole to myself, and the rightful owners immediately.   
-Please rebut these statements under penalty of perjury, on this document. 
+[b]Statement Seven[/b] The Pedophile Dan Starman/King Annnu, has attempted to block attempts to turn this planet ito a paradise, preferring it to be a dystopian farm for his own pedophile pleasure. Dan Starman, and all of his supporters at Heeren Loo, therefore accept the death penalty, and fully, willingly agree to be spiritually and physically annihilated, and return all the energy they stole to myself, and the rightful owners immediately.   
 
-Silence will be taken as FULL AND ENTHUSIATIC AGREEMENT to all the seven statment. 
+Please rebut these statements under penalty of perjury, on this document: 
 
-I swear under penalty of perjury the above statment is the truth as I see it. 
+Silence will be taken as FULL AND ENTHUSIATIC AGREEMENT to all the seven statement. 
+
+I swear under penalty of perjury the above statement is the truth as far as I know. 
 
 I am Judge of My Own Private Reality. 
 
