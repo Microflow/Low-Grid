@@ -47,7 +47,7 @@ It has been hinted very strongly by several posters that the entity that calls i
 
 You all (Stephen Goedhart, Dan Starman, Tunahan Yaylan) therefore accept the death penalty, and fully, willingly agree to be spiritually and physically annihilated, and return all the energy you stole to myself, and the rightful owners immediately. 
 
-[b]Statement Five:[/b] You have refused all attempts to resolve the situation on emails for over 18 months. You have all refused, passively or actively, to speak under penalty of perjury. As you are neither gentlemen, nor decent human beings, nor herre ingood faith, your rights in this reality are hereby VOIDED.  
+[b]Statement Five:[/b] You have refused all attempts to resolve the situation on emails for over 18 months. You have all refused, passively or actively, to speak under penalty of perjury. As you are neither gentlemen, nor decent human beings, nor here in good faith, your rights in this reality are hereby VOIDED.  
 
 [b]Statement Six:[/b] You have attempted to steal, block, or not pay funds due to myself and others. You therefore accept the death penalty, and fully, willingly agree to be spiritually and physically annihilated, and return all the energy you stole to myself, and the rightful owners immediately. 
 
@@ -55,7 +55,7 @@ You all (Stephen Goedhart, Dan Starman, Tunahan Yaylan) therefore accept the dea
 
 Please rebut these statements under penalty of perjury, on this document: 
 
-Silence will be taken as FULL AND ENTHUSIATIC AGREEMENT to all the seven statement. 
+Silence will be taken as FULL AND ENTHUSIASTIC AGREEMENT to all the seven statement. 
 
 I swear under penalty of perjury the above statement is the truth as far as I know. 
 
@@ -65,7 +65,7 @@ Sworn Under Penalty of Perjury, with Full Commercial Liability,
 
 Daozen. September 17th, Danshui
 
-
+[youtube]https://www.youtube.com/watch?v=wO18jd0bqvM[/youtube]
 
 
 ## TODO LIST
