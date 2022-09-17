@@ -17,6 +17,10 @@ If you wish to continue in this private reality, please rebut all of these state
 
 If you do not rebut them within 3 days, you fully agree to the terms. 
 
+You may write the rebuttal here:
+
+https://docs.google.com/document/d/1iyvoQLUZTWLAVR84gyE21NjFwmSbVuuTdPDwWlVE8_w/edit
+
 Please note, it is known that not all of the following statements are true for all of you, but most of them will be true for all of you. Due to the severity of your crimes, (murder, pedophilia, child sacrifice) if only one of the statements is true, you deserve the death penalty. 
 
 I swear under penalty of perjury, that the following Seven Statements are true, to the best of my knowledge: 
@@ -54,6 +58,8 @@ You all (Stephen Goedhart, Dan Starman, Tunahan Yaylan) therefore accept the dea
 [b]Statement Seven[/b] The Pedophile Dan Starman/King Annnu, has attempted to block attempts to turn this planet ito a paradise, preferring it to be a dystopian farm for his own pedophile pleasure. Dan Starman, and all of his supporters at Heeren Loo, therefore accept the death penalty, and fully, willingly agree to be spiritually and physically annihilated, and return all the energy they stole to myself, and the rightful owners immediately.   
 
 Please rebut these statements under penalty of perjury, on this document: 
+
+https://docs.google.com/document/d/1iyvoQLUZTWLAVR84gyE21NjFwmSbVuuTdPDwWlVE8_w/edit
 
 Silence will be taken as FULL AND ENTHUSIASTIC AGREEMENT to all the seven statement. 
 
