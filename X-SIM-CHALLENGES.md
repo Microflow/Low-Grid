@@ -30,7 +30,7 @@ Daozen.
 
 [b]Seven Statements[/b]
 
-Stephen Goedhart, Dan Starman, Adamn Aren, 
+Stephen Goedhart, Dan Starman, Adamn Aren, Tunahan Yaylan, Heeren Loo, and supporters ....
 
 [b]Statement One:[/b] You are pedophiles. You take part in abusive activities with children. You therefore accept the death penalty, and fully, willingly agree to be spiritually and physically and physically annihilated, and return all the energy you stole to myself, and the rightful owners immediately. 
 
