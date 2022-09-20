@@ -161,6 +161,74 @@ Where streams of whiskey are flowing
 
 ~O~
 
+[intro riff]
+A|-------------------------------------5-4-2---------------------|
+E|-------------------2-2-2--2-5------2-------5-2---------2-------|
+C|-2-4-2--2-4-2--2-4-------4-----2-4-------------2-4-4-4--4------|
+g|---------------------------------------------------------------|
+ 
+ 
+A|--------------------------------------5-4-2---------------------|
+E|-------------------2-2-2---2-5------2-------5-2-----------------|
+C|-2-4-2--2-4-2--2-4-------4-----2-4--------------2-4-2-2-4-2-----|
+g|----------------------------------------------------------------|
+ 
+[Verse]
+D                       G                  D
+Last night as I slept I dreamed I met with Behan
+                               G                  A
+I shook him by the hand and we passed the time of day
+     D                              G              D
+When questioned on his views on the crux of life's philosophies
+                                G     A        D
+He had but these few clear and simple words to say
+ 
+[Chorus]
+D           G        D      G                              A
+I am going, I am going, Any which way the wind may be blowing
+D           G        D        G                       A     D
+I am going, I am going, Where streams of whiskey are flowing
+ 
+[Verse]
+D                              G                      D
+I have cursed, bled and sworn, Jumped bail and landed up in jail
+                                    G                       A
+Life has often tried to stretch me, but the rope always was slack
+    D                     G               D
+And now that I've a pile, I'll go down to the Chelsea
+                         G              A           D
+I'll walk in on my feet, but I'll leave there on my back
+ 
+ 
+[Chorus]
+D           G        D      G                              A
+I am going, I am going, Any which way the wind may be blowing
+D           G        D        G                       A     D
+I am going, I am going, Where streams of whiskey are flowing
+ 
+[Instrumental]
+either intro chords or intro riff
+D      D      D      G    A D      D      D      G    D
+ 
+[Verse]
+D                                      G         D
+Oh the words that he spoke, seemed the wisest of philosophies
+                                 G                  A
+There's nothing ever gained by a wet thing called a tear
+     D                              G              D
+When the world is too dark and I need the light inside of me
+                               G       A        D
+I'll walk into a bar and drink fifteen pints of beer
+ 
+[Chorus] x 3
+D           G        D      G                              A
+I am going, I am going, Any which way the wind may be blowing
+D           G        D        G                       A     D
+I am going, I am going, Where streams of whiskey are flowing
+ 
+[Outro]
+D      D      D      G    A D      D      D      G    D
+
 ###  Streams of Mythic Dew / Misty Dew / Mists and Dew
 
 Last night as I slept
