@@ -15,7 +15,7 @@
 ## SETLIST: 
 
 ##### 0: UKE: Dirty Old Town  
-##### A: UKE: Streams of Whiskey. Streams of Mythic Dew.
+##### A: UKE: Streams of Whiskey / Streams of Mythic Dew.
 ##### 1: GTR: Dropped D. Blues jam / Slide. 
 ##### 2: UKE GOSPEL: Take Your Burden +/ 
 ##### 3: UKE CHILLLED: After Hours  
@@ -70,6 +70,182 @@ Dreamed a [F] dream, by the old ca-[C]nal
 [F] Kissed my [C] girl, by the [F] factory [C] wall
 Dirty old [Dm] town, dirty old [Am] town
 (Slower)  Dirty old [Dm] town, dirty old [Am] town
+
+# A
+
+## Streams of Misty Dew 
+
+### by Shane MacGowan and the Pogues
+
+Last night as I slept
+
+I dreamt I met with Behan
+
+I shook him by the hand and we passed the time of day
+
+When questioned on his views
+
+On the crux of life's philosophies
+
+He had but these few clear and simple words to say
+
+I am going, I am going
+
+Any which way the wind may be blowing
+
+I am going, I am going
+
+Where streams of whiskey are flowing
+
+I have cursed, bled and sworn
+
+Jumped bail and landed up in jail
+
+Life has often tried to stretch me
+
+But the rope always was slack
+
+And now that I've a pile
+
+I'll go down to the Chelsea
+
+I'll walk in on my feet
+
+But I'll leave there on my back
+
+Because I am going, I am going
+
+Any which way the wind may be blowing
+
+I am going, I am going
+
+Where streams of whiskey are flowing
+
+Oh the words that he spoke
+
+Seemed the wisest of philosophies
+
+There's nothing ever gained
+
+By a wet thing called a tear
+
+When the world is too dark
+
+And I need the light inside of me
+
+I'll walk into a bar
+
+And drink fifteen pints of beer
+
+
+Because I am going, I am going
+
+Any which way the wind may be blowing
+
+I am going, I am going
+
+Where streams of whiskey are flowing
+
+
+I am going, I am going
+
+Any which way the wind may be blowing
+
+I am going, I am going
+
+Where streams of whiskey are flowing
+
+Where streams of whiskey are flowing
+
+Where streams of whiskey are flowing
+
+~O~
+
+###  Streams of Mythic Dew / Misty Dew / Mists and Dew
+
+Last night as I slept
+
+I dreamt I met with Laozi
+
+I shook him by the hand and we passed the time of day
+
+When questioned on his views
+
+On the crux of life's philosophies
+
+He had but these few clear and simple words to say
+
+I am going, I am going
+
+Any which way the wind may be blowing
+
+I am going, I am going
+
+Where streams of mythic dew are flowing
+
+I have cursed, bled and sworn
+
+Jumped bail and landed up in jail
+
+Life has often tried to stretch me
+
+But the rope always was slack
+
+And now that I've a hunch
+
+I'll go down to the Chelsea
+
+I'll walk in on my feet
+
+But I'll leave there free in spirit
+
+ 
+
+Because I am going, I am going
+
+Any which way the wind may be blowing
+
+I am going, I am going
+
+Where streams of mythic dew are flowing
+
+Oh the words that he spoke
+
+Seemed the wisest of philosophies
+
+There's nothing ever gained
+
+By a wet thing called a tear
+
+When the world is too dark
+
+And I need the light inside of me
+
+I'll walk by a glade
+
+And commune with fifteen wild grown trees
+
+I am going, I am going
+
+Any which way the wind may be blowing
+
+I am going, I am going
+
+Where streams of mythic dew are flowing
+
+I am going, I am going
+
+Any which way the wind may be blowing
+
+I am going, I am going
+
+Where streams of mythic dew are flowing
+
+Where streams of mythic dew are flowing
+
+Where streams of mythic dew are flowing
+
+
 
 # 1
 
