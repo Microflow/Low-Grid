@@ -14,6 +14,8 @@
 
 ## SETLIST: 
 
+##### 0: UKE: Dirty Old Town  
+##### A: UKE: Streams of Whiskey. Streams of Mythic Dew.
 ##### 1: GTR: Dropped D. Blues jam / Slide. 
 ##### 2: UKE GOSPEL: Take Your Burden +/ 
 ##### 3: UKE CHILLLED: After Hours  
@@ -34,6 +36,40 @@
 ##### YOUREALLYGOTME/TITANIUM // 20THCENTURYBOY/CHANDELIER // TROUBLE / BABIES // HKTSUS/GODFATHER FLAMENCO/MISIRLOU
 
 ## Songs 
+
+# 0
+
+## Dirty Old Town
+
+[C] Dirty old [Dm] town, dirty old [Am] town
+[NC] I found my [C] love, by the [F] gas works [C] croft
+Dreamed a [F] dream, by the old ca-[C]nal
+[F] Kissed my [C] girl, by the [F] factory [C] wall
+Dirty old [Dm] town, dirty old [Am] town
+I heard a [C] siren [F] from the [C] docks
+Saw a [F] train set the night on [C] fire
+I [F] smelled the [C] spring on the [F] Salford [C] wind
+Dirty old [Dm] town, dirty old [Am] town
+Clouds are [C] drifting a[F]cross the [C] moon
+Cats are [F] prowling on their [C] beats
+[F] Spring's a [C] girl in the [F] street at [C] night
+Dirty old [Dm] town, dirty old [Am] town
+I'm going to [C] make a [F] good sharp [C] axe
+Shining [F] steel tempered in the [C] fire
+I'll [F] chop you [C] down like an [F] old dead [C] tree
+Dirty old [Dm] town, dirty old [Am] town
+Harmonica:
+[NC] I found my [C] love, by the [F] gas works [C] croft
+Dreamed a [F] dream, by the old ca-[C]nal
+[F] Kissed my [C] girl, by the [F] factory [C] wall
+ 
+All:
+[C] Dirty old [Dm] town, dirty old [Am] town
+[NC] I found my [C] love, by the [F] gas works [C] croft
+Dreamed a [F] dream, by the old ca-[C]nal
+[F] Kissed my [C] girl, by the [F] factory [C] wall
+Dirty old [Dm] town, dirty old [Am] town
+(Slower)  Dirty old [Dm] town, dirty old [Am] town
 
 # 1
 
