@@ -16,6 +16,7 @@
 
 ##### 0: UKE: Dirty Old Town  
 ##### A: UKE: Streams of Whiskey / Streams of Mythic Dew.
+##### B: Jesus Christ Pose
 ##### 1: GTR: Dropped D. Blues jam / Slide. 
 ##### 2: UKE GOSPEL: Take Your Burden +/ 
 ##### 3: UKE CHILLLED: After Hours  
