@@ -1,5 +1,5 @@
 #### EQUIPMENT 
-#### Jameson: Fully charged iphone/Apple Charger. Speaker. 
+#### Fully charged iphone/Apple Charger. Speaker. 
 #### DZN: Gtr/Uke/Slide/Fuzz/Cables/Batteries 
 
 #### TODO: Make Lyric Handout GDoc JSans. Make Commercial and Extended List. Make Fretboard Chart. Ionian/Blues/Phrygian etc. Buy Capo. Build harmonic capo? Make PVC Bassoon.   
@@ -358,54 +358,54 @@ Won't you come C
 
 Won't you come 2 2 2 5 
 
-Stuttering
 
-Cold and damp
 
-Steal the warm wind, tired friend
+Stuttering G
 
-Times are gone
+Cold and damp Bb
 
-For honest men
+Steal the warm wind, (F) tired friend Em
 
-Sometimes, far too long for snakes
+Times are gone Eb 0 3 3 1
 
-In my shoes
+For honest men D
 
-Walking sleep
+Sometimes, far too long for snakes G F Ab
 
-In my youth, I pray to keep
+In my shoes G 
 
-Heaven send
+Walking sleep Bb
 
-Hell away
+In my youth, (F) I pray to keep Em
 
-No one sings like you anymore
+Heaven send Eb
 
-Black hole sun
+Hell away D
 
-Won't you come
+No one sings like you anymore G F Ab
 
-And wash away the rain?
+Black hole sun Eb 
 
-Black hole sun
+Won't you come D
 
-Won't you come
+And wash away the rain? G F Bb
 
-Won't you come
+Black hole sun Eb
 
-Black hole sun
+Won't you come D
 
-Won't you come
+Won't you come C
 
-And wash away the rain?
+Won't you come D
 
-Hang my head
-Drown my fear
-Till you all just disappear
-Black hole sun
-Won't you come
-And wash away the rain?
+HEAVY SECTION
+
+Hang my head G
+Drown my fear Bb
+Till you all just disappear F Em
+Black hole sun Eb
+Won't you come D
+And wash away the rain? G F Bb
 
 
 
