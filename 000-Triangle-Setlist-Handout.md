@@ -346,17 +346,17 @@ And I'll hear you scream again G F Ab
 
 Black hole sun Eb
 
-Won't you come
+Won't you come D
 
-And wash away the rain?
+And wash away the rain? G F Bb
 
-Black hole sun
+Black hole sun 0 3 3 1 Eb
 
-Won't you come
+Won't you come D
 
-Won't you come
+Won't you come C
 
-Won't you come
+Won't you come 2 2 2 5 
 
 Stuttering
 
