@@ -674,25 +674,20 @@ FIRST VERSE LOWER?:
 ### And on a Sunday evening bells ring out in the dusk D G
 
 
+
+
 ### Another day in June, we'll pick eleven for football
 ### We're playing for our lives, the referee gives us fuck all
 ### I saw you in the corner of my eye on the sidelines
 ### Your dark mascara bids me to historical deeds
+
+
 
 ### The lovin' is a mess, what happened to all of the feeling? G D 
 ### I thought it was for real, babies, rings and fools kneeling 
 ### And words of pledging trust and lifetimes stretching forever  
 ### So what went wrong? It was a lie, it crumbled apart
 ### Ghost figures of past, present, future haunting the heart
-
-
-
-### Optional
-
-I thought it was for real, babies, rings and fools kneeling (Babies, rings and fools kneeling) G D
-We're playing for our lives, the referee gives us fuck all Am Em
-I saw you in the corner of my eye on the sidelines C G
-Your dark mascara bids me to historical deeds D G
 
 
 ### Good
