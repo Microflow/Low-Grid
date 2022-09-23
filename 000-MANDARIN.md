@@ -1,4 +1,8 @@
-### 42 SENTENCE PATTERNS
+### 100 BUSINESS ENGLISH PHRASES PART 2
+
+https://www.youtube.com/watch?v=EgZbiPT48Ew
+
+### 42 ESSENTIAL SENTENCE PATTERNS
 
 https://www.youtube.com/watch?v=PULnJUnQbac&t=542s
 
