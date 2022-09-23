@@ -16,7 +16,8 @@
 
 ##### 0: UKE: Dirty Old Town  
 ##### A: UKE: Streams of Whiskey / Streams of Mythic Dew.
-##### B: Jesus Christ Pose
+##### B: GTR: Jesus Christ Pose
+##### C: UKE: Black Hole Sun
 ##### 1: GTR: Dropped D. Blues jam / Slide. 
 ##### 2: UKE GOSPEL: Take Your Burden +/ 
 ##### 3: UKE CHILLLED: After Hours  
@@ -313,6 +314,98 @@ Where streams of mythic dew are flowing
 Where streams of mythic dew are flowing
 
 Where streams of mythic dew are flowing
+
+
+# C
+
+In my eyes G
+
+Indisposed Bb
+
+In disguises F
+
+no one knows Em
+
+Hides the face 0 3 3 1 Eb
+
+Lies the snake D (or variant) 2200
+
+And the sun in my disgrace G F Ab
+
+Boiling heat G
+
+Summer stench Bb
+
+Neath the black, the sky looks dead F Em
+
+Call my name 0 3 3 1 Eb
+
+Through the cream D
+
+And I'll hear you scream again G F Ab
+
+Black hole sun Eb
+
+Won't you come
+
+And wash away the rain?
+
+Black hole sun
+
+Won't you come
+
+Won't you come
+
+Won't you come
+
+Stuttering
+
+Cold and damp
+
+Steal the warm wind, tired friend
+
+Times are gone
+
+For honest men
+
+Sometimes, far too long for snakes
+
+In my shoes
+
+Walking sleep
+
+In my youth, I pray to keep
+
+Heaven send
+
+Hell away
+
+No one sings like you anymore
+
+Black hole sun
+
+Won't you come
+
+And wash away the rain?
+
+Black hole sun
+
+Won't you come
+
+Won't you come
+
+Black hole sun
+
+Won't you come
+
+And wash away the rain?
+
+Hang my head
+Drown my fear
+Till you all just disappear
+Black hole sun
+Won't you come
+And wash away the rain?
 
 
 
