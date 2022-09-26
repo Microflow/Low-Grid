@@ -586,6 +586,54 @@ being worshipped and adored.
 Ignite us with your all
 pervading light.
 
+## My Old Man's A Dustman
+
+My Old Man's A Dustman
+key:G, 
+
+D7 2223
+G7 0212
+A7 0100
+
+Now [G] here's a [D] little [Em] story to  [A7] tell it is a [D7] must
+[G] About an [D] unsung [Em] hero that  [A7] moves away your [D7] dust
+Some [A7] people make a  [D7] fortune  [A7] other's earn a  [D7] mint
+[A7] My old man don't earn much, in [D7] fact [A7] he's flippin' [D7] skint
+ 
+[D7] Oh! my [G] old man's a dustman he wears a dustman's hat [D7]
+He wears cor blimey trousers and he lives in a council [G] flat
+He looks a proper narner in his great [G7] big hob nailed [C] boots
+He's [D7] got such a job to pull em up that he calls them daisy [G] roots
+ 
+[G] Some folks give tips at Christmas and some of them [D7] forget
+So when he picks their bins up he spills some on the [G] steps
+Now one old man got nasty and [G7] to the council [C] wrote
+Next [D7] time my old man went 'round there he punched him up the [G] throat
+[G] (spoken) I say I say Lez! I 'er, I found a police dog in my dustbin
+(How do you know he's a police dog?) He had a policeman with him !!
+ 
+[G] Though my old man's a dustman he's got a heart of [D7] gold
+He got married recently though he's 86 years [D7] old
+We said 'Ere! Hang on Dad you're [G7] getting past your [C] prime'
+He said ' [D7] Well when you get to my age it helps to pass the [G] time'
+ 
+[G] (spoken) I say I say I say! My dustbins full of lillies
+(Well throw 'em away then) I can't Lilly's wearing them !!
+ 
+Now [G] one day while in a hurry he missed a lady's [D7] bin
+He hadn't gone but a few yards when she chased after [G] him
+'What game do you think you're playing' she [G7] cried right from the [C] heart
+[D7] 'You've missed me, am I too late?' 'No - jump up on the [G] cart'
+[G] (spoken) I say I say I say (What you again!) My dustbin's absolutely full with toadstools
+(How do you know it's full) 'Cos there's not "mush room" inside !!
+ 
+He [G] found a tiger's head one day, nailed to a piece of [D7] wood
+The tiger looked quite miserable but I suppose it [G] should
+Just then from out a window, a [G7] voice began to [C] wail
+[D7] He said (Oi! Where's me tiger head) - Four foot from it's [G] tail!!
+Next time you see a dustman [G7] looking all pale and [C] sad
+Don't [D7] kick him in the dustbin it might be my old [G] dad [F] [E] [D] [D] [F] [G]
+
 
 # 1
 
