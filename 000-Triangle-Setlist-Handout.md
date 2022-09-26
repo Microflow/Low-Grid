@@ -19,6 +19,8 @@
 ##### B: GTR: Jesus Christ Pose
 ##### C: UKE: Black Hole Sun
 ##### D: UKE/GTR: Mama wants me vaxxed.  
+##### E: Johnny B Goode
+##### F: Gayatri
 ##### 1: GTR: Dropped D. Blues jam / Slide. 
 ##### 2: UKE GOSPEL: Take Your Burden +/ 
 ##### 3: UKE CHILLLED: After Hours  
@@ -524,6 +526,45 @@ Go
 
 
 Johnny B. Goode
+
+## Gayatri
+
+Am
+
+
+Om bhur bhuvaha svaha
+
+
+Am
+
+
+Tat savitur varenyam
+
+
+F
+
+
+Bhargo devasya dhimahi
+
+
+Dm                  Gsus          G
+
+
+Dhiyo yonah prachodayat
+
+
+Meaning:
+Praise to the source of
+all things.
+It is due to you that we attain
+true happiness on the planes
+of earth, astral, causal.
+It is due to your transcendent
+nature that you are worthy of
+being worshipped and adored.
+Ignite us with your all
+pervading light.
+
 
 # 1
 
