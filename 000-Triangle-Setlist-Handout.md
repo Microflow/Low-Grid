@@ -422,7 +422,7 @@ I said, mother whats my crime?
 She said...
 You Tried to Live. 
 
-##
+## Johnny B Goode
 
 Deep down in Louisiana close to New Orleans
 
@@ -528,6 +528,27 @@ Go
 Johnny B. Goode
 
 ## Gayatri
+
+### Major
+
+### Start, a little minor. 
+
+Om - Em
+Bhargo - D 
+Diyo - G
+
+### Happy, Classic Bali Sound
+
+Om - G
+Bhargo - D
+Dyio - G
+
+Plays whole things around 4:30
+
+https://youtu.be/r3oqE73Wzwg?t=287
+
+
+### Minor Key
 
 Am
 
