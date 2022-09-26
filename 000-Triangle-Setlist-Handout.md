@@ -18,6 +18,7 @@
 ##### A: UKE: Streams of Whiskey / Streams of Mythic Dew.
 ##### B: GTR: Jesus Christ Pose
 ##### C: UKE: Black Hole Sun
+##### D: UKE/GTR: Mama wants me vaxxed.  
 ##### 1: GTR: Dropped D. Blues jam / Slide. 
 ##### 2: UKE GOSPEL: Take Your Burden +/ 
 ##### 3: UKE CHILLLED: After Hours  
@@ -407,7 +408,122 @@ Black hole sun Eb
 Won't you come D
 And wash away the rain? G F Bb
 
+## Mama Wants Me Vaxxed
 
+Mother tried to kill me Im a Pharoah
+Mother brings me soup, when I lived in a tower.  
+Then I tried to es-cape...
+Now Mama wants me vaxxed. 
+I saw her coming with a needle.  
+And then the clock struck 9.
+I said, mother whats my crime?
+She said...
+You Tried to Live. 
+
+##
+
+Deep down in Louisiana close to New Orleans
+
+
+Way back up in the woods among the evergreens
+
+
+There stood a log cabin made of earth and wood
+
+
+Where lived a country boy named Johnny B. Goode
+
+
+Who never ever learned to read or write so well
+
+
+But he could play a guitar just like a-ringin' a bell
+
+
+Go, go
+
+
+Go Johnny, go, go
+
+Go Johnny, go, go
+
+Go Johnny, go, go
+
+Go Johnny, go, go
+
+Johnny B. Goode
+
+He used to carry his guitar in a gunny sack
+
+
+Go sit beneath the tree by the railroad track
+
+
+Oh, the engineers would see him sitting in the shade
+
+
+Strumming with the rhythm that the drivers made
+
+
+The people passing by they would stop and say
+
+
+"Oh my what that little country boy could play"
+
+
+Go, go
+
+
+Go Johnny, go, go
+
+
+Go Johnny, go, go
+
+
+Go Johnny, go, go
+
+
+Go Johnny, go, go
+
+
+Johnny B. Goode
+
+
+His mother told him "someday you will be a man
+
+
+And you will be the leader of a big old band
+
+
+Many people coming from miles around
+
+
+To hear you play your music when the sun go down
+
+
+Maybe someday your name will be in lights
+
+
+Saying "Johnny B. Goode tonight"
+
+
+Go, go
+
+Go Johnny, go
+
+
+Go, go, go Johnny, go
+
+
+Go, go, go Johnny, go
+
+Go, go, go Johnny, go
+
+
+Go
+
+
+Johnny B. Goode
 
 # 1
 
