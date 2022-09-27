@@ -1,4 +1,55 @@
-FORM CHALLENGE 44
+FORM 44. BBCODE.
+
+Good, a test case.
+
+Can you, AC 73375296, and your group, swear against the following statement under penalty of perjury?
+
+~O~
+
+
+To stay in this private reality, you, AC 73375296, and your group, are hereby required to sign the following form within 3 days. Failure to do so means total removal for yourself and your group.
+
+Please sign and return this your sworn statement within 3 days...
+
+[b]
+
+I hereby swear under penalty of perjury all of the following:
+
+- You are an unwelcome, parasitic guest in a Private Reality, and have no right to be here. 
+
+- You have knowingly taken products manufactured from humans, such as Adrenochrome, Anandamide, human blood, pituitary, pineal, adrenal, or other glandular secretions. This is illegal, and the penalty is death. You therefore agree to be spiritaully and/or 
+physically annihilated. You will return all the energy you stole within 3 days.
+
+- You have funded, privately or professionally, companies that produce products made from human blood or glandular secretions. This is illegal, and the penhalty is death. You therefore agree to be spiritaully and/or 
+physically annihilated. You will return all the energy you stole within 3 days.
+
+- You have repeatedly had coercive sexual intercourse, or raped, children under the age of 16. You therefore agree to be spiritaully and/or 
+physically annihilated. You will return all the energy you stole within 3 days.
+
+- You have taken part in sacrificial rituals. This is illegal, and the penhalty is death. You therefore agree to be spiritaully and/or 
+physically annihilated. You will return all the energy you stole within 3 days.
+
+- You have conspired to lie to the public about vaccines. This is illegal, and the penalty is death. You will be spiritaully and/or 
+physically annihilated. You will return all the energy you stole within 3 days.
+
+If you cannot rebut and refute all those statements under penalty of perjury, youy willingly choose Spiritual and/or Physical Annihilation in this Private Reality. 
+
+Sworn Under Penalty of Perjury
+
+Daozen, Janitor
+
+~O~
+
+Your refutation of all the charges here, signed and sworn under penalty of perjury....
+
+________________________________________________________
+________________________________________________________
+________________________________________________________
+________________________________________________________
+
+[/b]
+
+FORM CHALLENGE 44.md (no bbcode)
 
 To stay in this private reality, you ______________ are hereby required to sign the following form within 3 days. Failure to do so means total removal for yourself and your group.
 
