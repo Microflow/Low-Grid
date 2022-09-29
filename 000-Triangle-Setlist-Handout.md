@@ -319,6 +319,77 @@ Where streams of mythic dew are flowing
 Where streams of mythic dew are flowing
 
 
+## Stubborn Love
+
+F Am F Am F Am G C
+
+(verse)
+F                        Am           Csus4           C
+She'll Lie and Steal and Cheat, and beg you from her knees
+    F                   Am    G       C
+And make you think she means it this time
+F                     Am        Csus4         C
+She'll Tear a hole in you, The one you can't repair
+    F                 Am       G      C
+But I Still Love Her, I don't Really care
+
+(Bridge)
+F            C      Am     G   
+When we were young, oh oh, we did enough
+F            C    Am     G
+When it got cold, oh oh, We bundled up
+F           C    Am     G                    C
+I can't be told, Ah Ah, it can't be done
+
+(2nd Verse)
+F                    Am     Csus4          C
+It's better to feel pain, than nothing at all
+F                 Am      G   C
+The opposite of love's indifference
+F             Am    Csus4                 C
+Pay attention now, I'm standing on your porch screaming out
+F                  Am       G       C
+And I wont leave until you come downstairs
+
+
+(Chorus)
+F                C           G      Am
+So keep your head up, keep your love
+F              C       G    Am
+keep your head up, my love 
+F              C       G    Am
+keep your head up, my love 
+F              C            G    Am
+Keep your head up, keep your love
+
+(3rd Verse)
+F                 Am       Csus4            C
+I don't blame ya dear for running like you did, all these years
+F               Am    G          C
+I would do the same, you best believe
+F                            Am    Csus4                    C
+The highway signs say we're close, but I don't read those things anymore
+F               Am  G   C
+I never trusted my own eyes
+
+(Bridge)
+F            C      Am     G   
+When we were young, oh oh, we did enough
+F            C    Am     G
+When it got cold, oh oh, We bundled up
+F           C    Am     G                    C
+I can't be told, Ah Ah, it can't be done
+
+(Chorus)
+F                C           G      Am
+So keep your head up, keep your love
+F              C       G    Am
+keep your head up, my love 
+F              C       G    Am
+keep your head up, my love 
+F              C            G    Am
+Keep your head up, keep your love
+
 # C
 
 In my eyes G
