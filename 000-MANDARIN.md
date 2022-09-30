@@ -2,7 +2,11 @@
 
 https://www.youtube.com/watch?v=X1oPrxyLEsk
 
-### Harbin Mandarin
+### Harbin Mandarin - Wild Animals
+
+https://www.youtube.com/watch?v=mai9RjWesdQ
+
+### Harbin Mandarin - Encouraging People. 
 
 https://www.youtube.com/watch?v=mai9RjWesdQ
 
