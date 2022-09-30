@@ -2,6 +2,10 @@
 
 https://www.youtube.com/watch?v=X1oPrxyLEsk
 
+### Harbin Mandarin
+
+https://www.youtube.com/watch?v=mai9RjWesdQ
+
 ### 100 BUSINESS ENGLISH PHRASES PART 2
 
 https://www.youtube.com/watch?v=EgZbiPT48Ew
