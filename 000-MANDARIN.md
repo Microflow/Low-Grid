@@ -6,6 +6,10 @@ https://www.youtube.com/watch?v=X1oPrxyLEsk
 
 https://www.youtube.com/watch?v=mai9RjWesdQ
 
+### How to Read!
+
+https://www.youtube.com/watch?v=mai9RjWesdQ
+
 ### Harbin Mandarin - Encouraging People. 
 
 https://www.youtube.com/watch?v=mai9RjWesdQ
