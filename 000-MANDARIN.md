@@ -6,6 +6,10 @@ https://www.youtube.com/watch?v=X1oPrxyLEsk
 
 https://www.youtube.com/watch?v=mai9RjWesdQ
 
+### Walk Around Hong Kong
+
+https://www.youtube.com/watch?v=b_d-Yf-Gzyw
+
 ### Chinese Girl Shocked At American Culture
 
 https://www.youtube.com/watch?v=f3WXGTBnxqM
