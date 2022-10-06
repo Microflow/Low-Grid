@@ -6,6 +6,10 @@ https://www.youtube.com/watch?v=X1oPrxyLEsk
 
 https://www.youtube.com/watch?v=mai9RjWesdQ
 
+### Chinese Girl Shocked At American Culture
+
+https://www.youtube.com/watch?v=f3WXGTBnxqM
+
 ### How to Read!
 
 https://www.youtube.com/watch?v=mai9RjWesdQ
