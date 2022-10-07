@@ -6,6 +6,10 @@ https://www.youtube.com/watch?v=X1oPrxyLEsk
 
 https://www.youtube.com/watch?v=mai9RjWesdQ
 
+### MAndarin Corner - Feelings and Emotions
+
+https://www.youtube.com/watch?v=X-epdww1aI0
+
 ### Walk Around Hong Kong
 
 https://www.youtube.com/watch?v=b_d-Yf-Gzyw
