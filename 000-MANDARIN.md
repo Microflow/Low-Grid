@@ -6,6 +6,10 @@ https://www.youtube.com/watch?v=X1oPrxyLEsk
 
 https://www.youtube.com/watch?v=QXJ2k5lwCss
 
+### Business and Other Vocab Workshop
+
+https://mandarincorner.org/business-vocabulary-by-topic/
+
 ### Harbin Mandarin - Wild Animals
 
 https://www.youtube.com/watch?v=mai9RjWesdQ
