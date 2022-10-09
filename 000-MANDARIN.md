@@ -6,6 +6,10 @@ https://www.youtube.com/watch?v=X1oPrxyLEsk
 
 https://www.youtube.com/watch?v=QXJ2k5lwCss
 
+### HSK 5 - Ten Minutes
+
+https://www.youtube.com/watch?v=Xq9aKwUE3Bg
+
 ## A Walk Through My Neighbourhood
 
 https://www.youtube.com/watch?v=NmWSKeJOGGo
