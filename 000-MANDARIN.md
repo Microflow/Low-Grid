@@ -461,6 +461,253 @@ work overtime (to) 加班 jiā bān
 
 written (for example, business agreement) 书面 shū miàn
 
+~O~
+
+AC adapter AC适配器 AC shì pèi qì
+
+android (operating system for mobile devices) 安卓 ān zhuó
+
+antivirus software 杀毒软件 shā dú ruǎn jiàn
+
+attachment (to an email) 附件 fù jiàn
+
+backup (example: computer files) 备份 bèi fèn
+
+Baidu (main China search engine) 百度 bǎi dù
+
+battery 电池 diàn chí
+
+blogger 博主 bó zhǔ
+
+Bluetooth 蓝牙 lán yá
+
+bookmark 书签 shū qiān
+
+browser 浏览器 liú lǎn qì
+
+button 按钮 àn niǔ
+
+cancel 取消 qǔ xiāo
+
+cc (to ... [send a copy of an email to others]) 抄送 chāo sòng
+
+charger 充电器 chōng diàn qì
+
+chat 聊天 liáo tiān
+
+click (on a link) 点击 diǎn jī
+
+comment 评论 píng lùn
+
+computer crash 死机 sǐ jī
+
+computer game 电脑游戏 diàn nǎo yóu xì
+
+confirm (to) 确定 què dìng
+
+copy (as in ‘copy and paste’) 复制 fù zhì
+
+data (material, resources, information) 资料 zī liào
+
+database 数据库 shù jù kù
+
+decline (to) 拒绝 jù jué
+
+desktop 桌面 zhuō miàn
+
+desktop computer 台式电脑 tái shì diàn nǎo
+
+digital 数码 shù mǎ
+
+document (or file) 文件 wén jiàn
+
+double click (on link) 双击 shuāng jī
+
+download 下载 xià zài
+
+e-commerce 电子商务 diàn zǐ shāng wù
+
+email 电子邮件 diàn zǐ yóu jiàn (or: yóu jiàn)
+
+external hard drive 移动硬盘 yí dòng yìng pán
+
+fan (could also be: subscriber, follower) 粉丝 fěn sī
+
+firewall 防火墙 fáng huǒ qiáng
+
+folder (on computer desktop) 文件夹 wén jiàn jiā
+
+forward (to... [example: email]) 转发 zhuǎn fā
+
+geek - female (stays at home and spends a lot of time on computer activities, etc) 宅女 zhái nǚ
+
+geek - male (stays at home and is addicted to computer online games, etc) 宅男 zhái nán
+
+Google (international search engine) 谷歌 Gǔ gē
+
+hacker 黑客 hēi kè
+
+hard disk 硬盘 yìng pán
+
+hardware 硬件 yìng jiàn
+
+headphones (or earphones) 耳机 ěr jī
+
+home page 首页 shǒu yè
+
+infect 感染 gǎn rǎn
+
+install (to) 安装 ān zhuāng
+
+interface (computer port, connector) 接口 jiē kǒu
+
+internet 网络 wǎng luò
+
+internet cafe 网吧 wǎng bā
+
+internet friend 网友 wǎng yǒu
+
+Internet search engine 搜索引擎 sōu suǒ yǐn qíng
+
+key (on a keyboard) 键 jiàn
+
+keyboard 键盘 jiàn pán
+
+keyword 关键词 guān jiàn cí
+
+laptop computer 笔记本电脑 bǐ jì běn diàn nǎo
+
+link (on web page) 链接 liàn jiē
+
+log out (to) 退出 tuì chū
+
+login (to) 登录 dēng lù
+
+Macintosh 苹果电脑 píng guǒ diàn nǎo
+
+memory card 存储卡 cún chǔ kǎ
+
+menu bar (in computers) 菜单栏 cài dān lán
+
+microphone 话筒 huà tǒng
+
+mobile device 移动设备 yí dòng shè bèi
+
+monitor 显示器 xiǎn shì qì
+
+mouse 鼠标 shǔ biāo
+
+offline (to go) 离线 lí xiàn
+
+online (to go) 上线 shàng xiàn
+
+online (to go... to surf internet) 上网 shàng wǎng
+
+online game 网游 wǎng yóu
+
+online shopping 网购 wǎng gòu
+
+password 密码 mì mǎ
+
+paste 粘贴 zhān tiē
+
+pirated software 盗版软件 dào bǎn ruǎn jiàn
+
+podcast 播客 bō kè
+
+press (to... [example: key on a keyboard]) 按 àn
+
+printer (for computer) 打印机 dǎ yìn jī
+
+RAM 内存 nèi cún
+
+register (to) 注册 zhù cè
+
+restart or reboot (to) 重启 chóng qǐ
+
+return key (on a keyboard) 回车键 huí chē jiàn
+
+Samsung 三星 sān xīng
+
+save (to... [on computer]) 保存 bǎo cún
+
+scanner 扫描仪 sǎo miáo yí
+
+screen (for computer, TV or movie) 屏幕 píng mù
+
+search (to ... [example: on internet]) 搜索 sōu suǒ
+
+send an email (to) 发邮件 fā yóu jiàn
+
+send text message (to) 发短信 fā duǎn xìn
+
+signal 信号 xìn hào
+
+slot (as in a computer) 插槽 chā cáo
+
+smartphone 智能手机 zhì néng shǒu jī
+
+Social Network 社交网络 shè jiāo wǎng luò
+
+software 软件 ruǎn jiàn
+
+spam (junk mail) 垃圾邮件 lā jī yóu jiàn
+
+speakers 音响 yīn xiǎng
+
+submit (to.. [as in ‘submit button]) 提交 tí jiāo
+
+subscribe (to) 订阅 dìng yuè
+
+system 系统 xì tǒng
+
+taobao (famous Chinese online shopping website) 淘宝 táo bǎo
+
+text message 短信 duǎn xìn
+
+text message (or news, information) 信息 xìn xī
+
+to set up (example: software preferences) 设置 shè zhì
+
+to uninstall (software) 卸载 xiè zài
+
+touchpad 触摸板 chù mō bǎn
+
+touchscreen 触摸屏 chù mō píng
+
+turn off (to... [example: computer]) 关机 guān jī
+
+tweet (to... [on Weibo]） 发微博 fā wēi bó
+
+upload 上传 shàng chuán
+
+USB 优盘 yōu pán (or U pán)
+
+user 用户 yòng hù
+
+video game 电玩 diàn wán
+
+virus 病毒 bìng dú
+
+web page 网页 wǎng yè
+
+website 网站 wǎng zhàn
+
+website address 网址 wǎng zhǐ
+
+WeChat 微信 wēi xìn
+
+Weibo (Chinese Twitter) 微博 wēi bó
+
+WIFI 无线网路 wú xiàn wǎng 
+
+Windows (Microsoft operating system) 视窗 shì chuāng (but usually said as "windows")
+
+wireless 无线 wú xiàn
+
+Youku （Chinese YouTube) 优酷 yōu kù
+
+
 
 
 
