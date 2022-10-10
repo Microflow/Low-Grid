@@ -4,7 +4,13 @@ https://scontent.ftpe8-1.fna.fbcdn.net/v/t39.30808-6/283969297_5278760028848278_
 
 ### POSTERS TO WATCH
 
-### Joshua Gutierrez
+### Joshua Gutierrez - Posted Millionaire Cheatcode D and B method. 
+### Demico Smith - Wrote about 7 Page Book: How to Discharge Debts with Promissory Notes
+
+Here is images of the entire book called "How to Discharge  Debts with Promissory Notes - With a Sample Promissory 
+Note and Affidavit if Truth", as I promised in my other post. Its only several pages DYOR research in regard to 
+what's in the book. Enjoy😁
+
 
 the millionaire cheatcode 
 1. Living Will ~ Living Trust instructions  https://icedrive.net/s/8SPyWP6fYZC7hzbY6YYCGv6ixV5z https://icedrive.net/s/ARWPhN9Ch7x6uAVCxz9ARQk6a1uQ 
