@@ -1,3 +1,9 @@
+## Green Door. Gods Throne Room AC. 
+
+80521257
+
+## Green Lion Ate The Sun
+
 https://atlanteangardens.blogspot.com/2014/06/alchemy-green-lion-devouring-sun.html
 
 Very helpful! This is an important image in the video game Virtue's Last Reward, and I was wondering what the symbolism meant. 
