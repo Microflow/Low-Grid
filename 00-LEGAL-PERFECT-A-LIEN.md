@@ -10,6 +10,9 @@ https://www.antonlegal.com/blog/how-much-does-it-cost-to-file-a-mechanics-lien/
 
 Hi, are you able to help me perfect a lien that will be served in Taipei, Taiwan?
 
+#### Details
+
+A "friend" owed me a small amount of money. 100USD. I asked him to pay me. He started sending death threats. I have them all recorded clearly in gmail. I'd like to put a lien on his property or car for damages. Is this possible? Can provide more info if you'd like. Thanks.
 
 ### RomaineDonnet FVR
 
