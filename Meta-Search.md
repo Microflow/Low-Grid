@@ -4,6 +4,14 @@ https://codepen.io/Teeke/pen/PojGZYK?editors=1010
 
 ## COMBINE: Project of The Day. Kalki Library. Google API. Yandex API.  
 
+### Path
+
+Either fix Kalki (look for old 2021 doc)
+
+Or do new Google Sheet Search
+
+https://www.youtube.com/watch?v=8T5ZfzrCGis
+
 Needs to display
 
 ### Display Results from Kalki and Google/Yandex
