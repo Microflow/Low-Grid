@@ -4,6 +4,10 @@ https://codepen.io/Teeke/pen/PojGZYK?editors=1010
 
 ## COMBINE: Project of The Day. Kalki Library. Google API. Yandex API. 
 
+## SearXing Github
+
+https://github.com/tiekoetter/searxng
+
 ## Working SearX Instance
 
 https://searx.thegpm.org/
