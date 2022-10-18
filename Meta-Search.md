@@ -4,11 +4,15 @@ https://codepen.io/Teeke/pen/PojGZYK?editors=1010
 
 ## COMBINE: Project of The Day. Kalki Library. Google API. Yandex API.  
 
-##
+## SearX
 
 Use SearchX
 
 https://searchx.co.za/#5
+
+## SearX Not Working. Tutorial
+
+https://codepen.io/jinwk00/pen/YMPNar
 
 ### Path
 
