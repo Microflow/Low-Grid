@@ -4,6 +4,12 @@ https://codepen.io/Teeke/pen/PojGZYK?editors=1010
 
 ## COMBINE: Project of The Day. Kalki Library. Google API. Yandex API.  
 
+##
+
+Use SearchX
+
+https://searchx.co.za/#5
+
 ### Path
 
 Either fix Kalki (look for old 2021 doc)
