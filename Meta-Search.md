@@ -8,6 +8,10 @@ https://codepen.io/Teeke/pen/PojGZYK?editors=1010
 
 https://searx.thegpm.org/
 
+## How to Install SearcX 
+
+https://null-byte.wonderhowto.com/how-to/create-your-own-search-engine-for-more-privacy-zero-trust-issues-0182130/
+
 ## SearX
 
 Use SearchX
