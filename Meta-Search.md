@@ -1,6 +1,11 @@
 ## Kalki 2021 - try to Fix Bug
 
 https://codepen.io/Teeke/pen/PojGZYK?editors=1010
+
+## COMBINE: Project of The Day. Kalki Library. Google API. Yandex API.  
+
+Needs to display
+
 ### Display Results from Kalki and Google/Yandex
 
 ##### SearcX - 
