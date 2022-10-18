@@ -2,7 +2,11 @@
 
 https://codepen.io/Teeke/pen/PojGZYK?editors=1010
 
-## COMBINE: Project of The Day. Kalki Library. Google API. Yandex API.  
+## COMBINE: Project of The Day. Kalki Library. Google API. Yandex API. 
+
+## Working SearX Instance
+
+https://searx.thegpm.org/
 
 ## SearX
 
