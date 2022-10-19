@@ -1,8 +1,25 @@
-## Kalki 2021 - try to Fix Bug
+# AIM
+
+COMBINE: 
+
+- Project of The Day (Take from a Kalki Codepen). 
+- Kalki Forbidden Library Include Emerald tablets, alchemical texts. (Find a way to traverse Google Sheets). 
+- SearX or other Metasearch.
+Optional 
+- (Not sure) Google API. Yandex API. 
+
+
+## Kalki 2021 - try to Fix Bug - Orange K design. Looks Good. Google Sheets url doesn't work. Check Kalki Doc to look at old Free Code Camp threads. 
+
+### Take project box from here. remove hover)
 
 https://codepen.io/Teeke/pen/PojGZYK?editors=1010
 
-## COMBINE: Project of The Day. Kalki Library. Google API. Yandex API. 
+# SearX - Looks very good. 
+
+https://medium.com/geekculture/host-your-own-private-search-engine-searx-66549a7b1f7f
+
+
 
 ## SearXing Github
 
