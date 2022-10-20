@@ -10,6 +10,10 @@ https://docs.google.com/document/d/1eS-tItrTmYd5Db_197_hIJJf0KpM04SL_9AaUmSRIqc/
 
 https://docs.google.com/document/d/1R3R8wPvJ4q-c3B9JdlhjZwT4ceuREBcCfNl9ZMKA2Gc/edit
 
+## CLOUD MAIN DOC
+
+https://docs.google.com/document/d/1de9g0qWWkYb2HVAfxpsYiknKqjI039dWEUC-Cix11q4/edit
+
 ## SETLIST 2 Paul
 
 https://github.com/Microflow/Low-Grid/blob/main/AAA%20SETLIST%20Godfather-and-Misirlou.md
