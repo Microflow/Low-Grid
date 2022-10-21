@@ -12,6 +12,10 @@ Optional
 
 https://www.youtube.com/watch?v=oufXi3e-VuA
 
+## Very Clear Intro, 6 minutes
+
+https://www.youtube.com/watch?v=fKOorVJzQas
+
 ## Kalki 2021 - try to Fix Bug - Orange K design. Looks Good. Google Sheets url doesn't work. Check Kalki Doc to look at old Free Code Camp threads. 
 
 ### Take project box from here. remove hover)
