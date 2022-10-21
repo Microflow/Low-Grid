@@ -8,6 +8,9 @@ COMBINE:
 Optional 
 - (Not sure) Google API. Yandex API. 
 
+## Excellent Intro Luke Smith
+
+https://www.youtube.com/watch?v=oufXi3e-VuA
 
 ## Kalki 2021 - try to Fix Bug - Orange K design. Looks Good. Google Sheets url doesn't work. Check Kalki Doc to look at old Free Code Camp threads. 
 
