@@ -1,5 +1,7 @@
 ## Today (Contact Owen and Cloud about MP3s. Check PDFs are upto date. Update Owen. Do PRs. Tomorrow if poss.)
 
+Chair/black bucket/somewhere to sit. 
+
 ### Graphite (can buy pencils)
 graphite
 
