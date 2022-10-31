@@ -14,6 +14,10 @@ https://www.bakermckenzie.com/en/locations/asia-pacific/taiwan
 Taipei 105405
 Taiwan**
 
+# Legal Aid Taiwan
+
+Head Office ADD: 5F., No.189, Sec. 2, Jinshan S. Rd., Da’an Dist., Taipei City 106, Taiwan    TEL: +886-2-2322-5255
+
 ### Credit reform.co.uk. Couldn't Help
 
 https://www.creditreform.co.uk/debt-collection-agency/international/taiwan/taichung/
