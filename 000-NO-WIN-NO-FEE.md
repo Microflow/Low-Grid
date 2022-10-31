@@ -18,6 +18,20 @@ Taiwan**
 
 https://www.creditreform.co.uk/debt-collection-agency/international/taiwan/taichung/
 
+## Looks Good. try later. Get Standard Email Written Out.
+
+https://www.bierensgroup.com/en-gb/contact/
+
+Dear        ,
+
+I lent some money to someone, and when I asked for it back, he sent me multiple death threats. I have them saved on email. I don't care about the money, it's trivial, but I'd like to file a lien for compensation... Please let me know if you can help. 
+
+You can read about them here. 
+
+Best wishes, 
+
+Jake
+
 ## Legal Aid Foundation
 
 https://www.laf.org.tw/en/index.php?action=service
