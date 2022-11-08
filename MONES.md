@@ -25,3 +25,19 @@ Free shipping on orders over 75USD.
 ### The Edge10 pack.
 
 https://love-scent.com/edge-gel-packs-for-men-10-pack.html
+
+
+*
+
+## Castoreum (From Beavers)
+
+https://en.wikipedia.org/wiki/Castoreum
+
+
+## Theory
+
+https://en.wikipedia.org/wiki/Androstenone
+
+Androstenone is synthesized from androstadienone by 5α-reductase, and can be converted into 3α-androstenol 
+or 3β-androstenol by 3-ketosteroid reductase.[6]
+
