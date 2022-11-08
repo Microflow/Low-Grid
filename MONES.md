@@ -26,8 +26,13 @@ Free shipping on orders over 75USD.
 
 https://love-scent.com/edge-gel-packs-for-men-10-pack.html
 
+https://www.quora.com/Does-pheromone-perfume-work-for-real-or-is-it-just-a-marketing-gimmick
 
 *
+
+### Chikara
+
+http://pherolibrary.com/forum/showthread.php/22881-SOE-and-Chikara-working-as-usual
 
 ## Castoreum (From Beavers)
 
