@@ -10,6 +10,12 @@
 
 https://love-scent.com/liquid-trust-pheromones-p-108.html
 
+### Beginner Pack
+
+https://love-scent.com/beginner-special-for-men-p-151.html
+
 Free shipping on orders over 75USD.
 
 [FORUM](http://pherolibrary.com/forum/)
+
+
