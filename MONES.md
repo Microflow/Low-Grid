@@ -46,3 +46,6 @@ https://en.wikipedia.org/wiki/Androstenone
 Androstenone is synthesized from androstadienone by 5α-reductase, and can be converted into 3α-androstenol 
 or 3β-androstenol by 3-ketosteroid reductase.[6]
 
+## Good Forum Threads
+
+http://pherolibrary.com/forum/showthread.php/627-my-results-for-Andro-4-2-testing-for-5-months
