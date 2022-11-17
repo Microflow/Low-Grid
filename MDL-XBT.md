@@ -6,6 +6,14 @@ Filipino VA only a few dollars per hour.
 
 ### [Filipino Virtual Assistant. Basic FB search. brings up three groups. ](https://www.facebook.com/search/top?q=filipino%20virtual%20assistant)
 
+## 5 USD per hour. Charismatic:
+
+https://www.fiverr.com/alexaa_o/be-your-reliable-virtual-assistant?context_referrer=search_gigs&source=top-bar&ref_ctx_id=97855e7d9f2b489f36be1dbb905c25e6&pckg_id=1&pos=7&context_type=auto&funnel=97855e7d9f2b489f36be1dbb905c25e6&imp_id=522e720c-cb29-430b-aabb-95e9f1f45e4b
+
+## Similar to above
+
+https://www.fiverr.com/dhey05/be-your-virtual-assistant?context_referrer=search_gigs&source=top-bar&ref_ctx_id=97855e7d9f2b489f36be1dbb905c25e6&pckg_id=1&pos=4&context_type=auto&funnel=97855e7d9f2b489f36be1dbb905c25e6&imp_id=9dfd792c-c4ee-4d5f-8ab7-6666ed2b95f8
+
 ## Potential CAndidates
 
 https://www.facebook.com/groups/2444828519086409/user/100018355086402/
