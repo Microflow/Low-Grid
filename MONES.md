@@ -1,6 +1,8 @@
 ### The Edge
 
-### Scent of Eros
+### Scent of 
+
+https://www.sfexaminer.com/our_partners/6-best-pheromone-colognes-for-men-2020-attract-women-like-crazy/article_161a0726-de22-52d1-9e7b-0e4318c71dc1.html
 
 ### WAGG
 
