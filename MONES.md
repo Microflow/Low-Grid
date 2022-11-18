@@ -14,6 +14,20 @@ https://love-scent.com/liquid-trust-pheromones-p-108.html
 
 https://love-scent.com/edge-pheromone-cologne-with-sandalwood.html
 
+### [Pherazone](https://pherazone.com/)
+
+The ingredients in each of Pherazone’s pheromone products vary based on who you want to attract. The one designed for men’s use contains:
+
+5-alpha-Androstenone
+Androsterone
+Androstadienol
+Beta-androstenol
+Beta-epi-androstenol
+5-alpha-Androstenol
+Androstadienone
+Signature fragrance
+Concentrated hormone blend
+
 ### Beginner Pack
 
 https://love-scent.com/beginner-special-for-men-p-151.html
