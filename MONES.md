@@ -6,6 +6,10 @@ https://www.sfexaminer.com/our_partners/6-best-pheromone-colognes-for-men-2020-a
 
 ### WAGG
 
+### NPA and Realm for Asia
+
+http://pherolibrary.com/forum/showthread.php/2486-Asian
+
 ### [LS](https://love-scent.com/)
 
 ### LT - 24:95
