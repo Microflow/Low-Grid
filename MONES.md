@@ -6,6 +6,10 @@ https://www.sfexaminer.com/our_partners/6-best-pheromone-colognes-for-men-2020-a
 
 ### WAGG
 
+### How to Mix MONES
+
+https://www.youtube.com/watch?v=m3ZNTfiQj88
+
 ### NPA and Realm for Asia
 
 http://pherolibrary.com/forum/showthread.php/2486-Asian
