@@ -1,3 +1,7 @@
+## Cloud Festivals
+
+https://docs.google.com/document/d/1tRNjzHGatsf5c0Qidsxtxn-YQ88Xafqej6uNke3RLuk/edit
+
 ## Crop Circles
 
 https://docs.google.com/document/d/1cf8Hjq8AfC-Lkhuf2V3icGtXmlULPxiOELzMNOuDsG0/edit?pli=1
