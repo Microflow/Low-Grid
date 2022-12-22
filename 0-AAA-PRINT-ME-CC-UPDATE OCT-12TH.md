@@ -1,4 +1,8 @@
 
+# Cloud Troubleshooting December 23rd.
+
+https://docs.google.com/document/d/1g9ImsaVJPxMXKFiHovoqaOjoU147MEpPZGzJgTMsEYc/edit
+
 # Cloud / Owen Deceber 8th 
 
 https://docs.google.com/document/d/18Eya2D17OKXi40mi7zqB2X6s3XRVGeML47kAncHg_Hg/edit
