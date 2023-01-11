@@ -1,5 +1,5 @@
 
-# KALKI / XINGXING QUESTIONS AND ROLEPLAYS (In Flaming Lips, Christmas at the Zoo)
+# JAN 11TH. KALKI / XINGXING QUESTIONS AND ROLEPLAYS (In Flaming Lips, Christmas at the Zoo, Battle royal.)
 
 https://docs.google.com/document/d/1YCoKmihqhX1vQ1c7yhFquPoM_7LUWpwEM2-xl-rC7mQ/edit
 
