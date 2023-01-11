@@ -1,5 +1,11 @@
 
-# JAN 11TH. KALKI / XINGXING QUESTIONS AND ROLEPLAYS (In Flaming Lips, Christmas at the Zoo, Battle royal.)
+# BARBIE AND MUM TOMORROW
+
+# Moonchild - Printing
+
+https://docs.google.com/document/d/1K518mVed-RIoh-gVdYjpFv1GZ5gNdqZJI1d7XgUlQhk/edit
+
+# JAN 10TH. KALKI / XINGXING QUESTIONS AND ROLEPLAYS (In Flaming Lips, Christmas at the Zoo, Battle royal.)
 
 https://docs.google.com/document/d/1YCoKmihqhX1vQ1c7yhFquPoM_7LUWpwEM2-xl-rC7mQ/edit
 
