@@ -1,5 +1,10 @@
+## Owen Main
 
-# BARBIE AND MUM TOMORROW
+https://docs.google.com/document/d/1nlTi4gQwZo2Fkqjy3eevNxn1OtcwtYynM4E8R83eSkA/edit
+
+## AVNET CENTRALZED VS DECENTRALIZED
+
+https://docs.google.com/document/d/1h2XMphNccejfVdCN-PskWNcwZI4gEOwVK6dmhMNGvlE/edit
 
 # Moonchild - Printing
 
