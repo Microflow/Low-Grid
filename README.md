@@ -2,6 +2,10 @@
 
 ## TODO: ONGOING TICKET, Research Visas. 
 
+Which is better Da Nang or Nha Trang?
+Image result
+Da Nang is much cleaner than Nha Trang, but Nha Trang has far less construction. Nha Trang has a nicer beach promenade, but Da Nang has a beautiful river walk. It really just depends what's more important to you in a destination!
+
 ## Visas
 
 British Nationals can enter Vietnam for up to 15 days for tourism, transit and business (but not paid or voluntary work)
