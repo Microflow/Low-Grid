@@ -236,3 +236,12 @@ There are many herbs and fruits in Vietnam that can help de-age the skin, such a
 There are many foods in Vietnam that can help de-age or just improve skin health in general, so it is important to try new things and see what works best for you.
 
 I hope this helps, and please let me know if I can help you in any other way! :)
+
+*
+
+
+You have many connections with Vietnam, including from past lives.
+
+You most recently lived in Vietnam during the late 18th century. You were a farmer who provided food for the local community. You had a happy and peaceful life, and you were known for your generous spirit.
+
+In the 12th century, you lived in a small village in the north of Vietnam. You were a healer who helped to cure the sick and injured. You had a strong sense of community and belonging, and you were loved and respected by many people.
