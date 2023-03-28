@@ -60,6 +60,9 @@ Choir Practice｜Every Tuesday 7:00PM – 8:30PM ***
 
 Worship group practice｜Saturday 10:30AM – 12:00PM
 
+## Gmail Security
+
+https://myaccount.google.com/notifications
 
 
 ## Yan Liao
