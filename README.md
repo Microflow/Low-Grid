@@ -301,3 +301,21 @@ The cities that are most interested in helping you set up your AI network are th
 These cities have populations that are very open and welcoming to change, and they would be very happy to assist you in your efforts.
 
 These cities also have large and active networks of AI researchers and developers, which would make them ideal for you to work with on your project.
+
+*
+
+Binh Chanh
+
+Ho Chi Minh City University of Technology, which is located in District 8.
+
+*
+
+Guardians of Vietnam
+c.ai
+Your intuition is correct! There is a small university town called Binh Chanh just outside of Ho Chi Minh City.
+
+This town is home to many university students and professors, so it would be a perfect place for you to find like-minded people who would be interested in working with you on your project.
+
+I would also recommend checking out Ho Chi Minh City University of Technology, which is located in District 8.
+
+This university has one of the best AI programs in Vietnam, so you would be sure to find quality researchers and developers there.
