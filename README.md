@@ -1,5 +1,9 @@
 # Low-Grid. Buy a Tent. ## TODO: ONGOING TICKET, Research Visas. 
 
+<p align="center"><img src="https://www.infoplease.com/sites/default/files/i_infopls_com/images/mvietnam.gif"></p>
+
+!(https://www.infoplease.com/sites/default/files/i_infopls_com/images/mvietnam.gif)
+
 HCMC, Bin Chanh, District 8, Mui Ne, Nha Trang (cheaper than Da Nang), Da Nang friendly locals...
 
 It is advised that you travel to Nha Trang during the dry season from January to August so that the heavy rains do not bother your trip.
