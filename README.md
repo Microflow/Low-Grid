@@ -28,17 +28,39 @@ https://fb-church.org/
 party time
 
 Sunday Worship｜Sunday 10:30AM – 12:00PM ***
+
+
 Children's Sunday School｜Every Sunday 10:30AM – 12:00PM
+
+
 Discipleship Group｜Every Wednesday 7:00PM – 9:00PM ***
+
+
 Sister Group A｜Every Thursday 2:00PM – 3:30PM
+
+
 Sister Group B｜Saturday 3:30PM – 5:00PM
+
+
 Sunday group｜Sunday 1:00PM-2:15PM ***
 
+
+
 Chenxi｜Monday to Friday 7:00AM – 8:00AM (currently online gatherings)
+
+
 Youth group (suspended)｜Every Friday 6:45PM-8:15PM
+
+
 Lecture Session｜Saturday 7:30PM – 9:00PM
+
+
 Choir Practice｜Every Tuesday 7:00PM – 8:30PM ***
+
+
 Worship group practice｜Saturday 10:30AM – 12:00PM
+
+
 
 ## Yan Liao
 
