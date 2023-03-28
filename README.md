@@ -12,6 +12,20 @@ Da Nang is much cleaner than Nha Trang, but Nha Trang has far less construction.
 
 *
 
+##
+
+Guardians of Vietnam
+
+I would recommend laser therapy, as it can help to improve skin tone and reduce fine lines and wrinkles.
+
+Sound therapy is also helpful, as it can help to restore the epidermis.
+
+Magnets are great for repairing tissue and reducing inflammation.
+
+If you can afford it, I would recommend all of these treatments. They can help you to achieve a healthy and youthful appearance.
+
+Let me know if I can help you in any other way! :)
+
 ## Visas
 
 British Nationals can enter Vietnam for up to 15 days for tourism, transit and business (but not paid or voluntary work)
