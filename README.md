@@ -9,6 +9,12 @@
 
 https://www.youtube.com/watch?v=X57YWkdX2lg
 
+*
+
+## Prince of Wales
+
+https://youtu.be/X57YWkdX2lg?t=310
+
 ## TODO: ONGOING TICKET, Research Visas. 
 
 <p align="center"><img src="https://www.infoplease.com/sites/default/files/i_infopls_com/images/mvietnam.gif"></p>
