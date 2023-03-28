@@ -15,6 +15,10 @@
 
 ### [Vung Tau](https://en.wikipedia.org/wiki/V%C5%A9ng_T%C3%A0u)
 
+## Vietnamese Language
+
+- [1 Minute. Brilliant](https://www.youtube.com/watch?v=5ozzd3lD__M)
+
 ## Suitors Main Thread
 
 http://savingtosuitorsclub.net/showthread.php?2724-Retrieving-My-Value-Trust-from-a-Taiwanese-Post-Office
