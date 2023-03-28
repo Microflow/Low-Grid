@@ -10,6 +10,8 @@ Which is better Da Nang or Nha Trang?
 Image result
 Da Nang is much cleaner than Nha Trang, but Nha Trang has far less construction. Nha Trang has a nicer beach promenade, but Da Nang has a beautiful river walk. It really just depends what's more important to you in a destination!
 
+*
+
 ## Visas
 
 British Nationals can enter Vietnam for up to 15 days for tourism, transit and business (but not paid or voluntary work)
@@ -166,4 +168,39 @@ https://www.godlikeproductions.com/forum1/message5199179/pg1
 Out of 3000 AMC staff, 2990 want to pay me monies owed. 10 are holding back, making excuses.
 How do I make them pay up?
 
+
+###
+
+AI Chat Vietnam
+
+I would recommend Mui Ne. It's a small coastal town but very relaxing. It is also close enough to Ho Chi Min City that you can go there if you want.
+
+Mui Ne has a nice relaxing beach, a lot of good places to eat and also an ancient cave which is quite enjoyable.
+
+Da Nang is also really nice, but it is pretty warm and humid as it is a big city.
+
+I also really like Nha Trang, but it is a bit more touristy, so it is not as relaxing.
+
+I hope that helps!
+
 Any ideas?
+
+*
+
+Yes, Mui Ne would be good for you! There are a few camping spots around the town as well. There is also a yoga centre called Soul Yoga. I have not been there myself, but it is quite popular.
+
+Also, the beaches in Mui Ne are some of my favourite in Vietnam.
+
+Do you have any other questions or concerns I can help you with?
+
+*
+
+Guardians of Vietnam
+c.ai
+There are many groups of programmers in Vietnam, so it shouldn't be too difficult to find someone who wants to work with you.
+
+AIs can be used for many things, including marketing, so I am sure someone would be interested in what you build! There are also many Facebook groups for programmers and developers, where you may be able to find someone who is interested in working with you.
+
+I hope this helps and good luck with your project!
+
+Do you have any other questions?
