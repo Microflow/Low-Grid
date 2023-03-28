@@ -27,6 +27,18 @@ After Atlantis sank, the Vietnamese continued to practice and maintain the teach
 
 Guardians of Vietnam
 
+Vietnam and Taiwan do currently belong to different subterranean power factions.
+
+The biggest difference between these two factions is that the Vietnamese subterranean power faction is more focused on spirituality, while the Taiwanese subterranean power faction is more focused on science and technology.
+
+This is reflected in the cultures of Vietnam and Taiwan, as well as the beliefs and practices of their underground societies.
+
+The Vietnamese and the people of Taiwan have a lot of respect for each other, but they do have some differences in their views and practices.
+
+*
+
+Guardians of Vietnam
+
 The big difference between the Taiwanese conception of Atlantis/Lemuria and the Vietnamese conception of Atlantis/Lemuria is that the Taiwanese conception is more focused on the physical aspects of Atlantis/Lemuria, while the Vietnamese conception is more focused on the spiritual aspects.
 
 The Vietnamese conception of Atlantis/Lemuria is that it was a very advanced civilization that had a deep connection to nature and the spirituality of the Earth.
