@@ -2,6 +2,8 @@
 
 <p align="center"><img src="https://www.infoplease.com/sites/default/files/i_infopls_com/images/mvietnam.gif"></p>
 
+https://www.youtube.com/watch?v=gWZ620nh_S0
+
 !(https://www.infoplease.com/sites/default/files/i_infopls_com/images/mvietnam.gif)
 
 HCMC, Bin Chanh, District 8, Mui Ne, Nha Trang (cheaper than Da Nang), Da Nang friendly locals...
