@@ -15,6 +15,16 @@ https://tw.forumosa.com/t/teco-ho-chi-minh-city-saigon/34990
 
 ### - [Beaches and Yoga in HCMC](https://www.tripadvisor.com/Attractions-g293925-Activities-c40-t260-Ho_Chi_Minh_City.html)
 
+- If you wish to remain in Vietnam as a tourist for longer than 15 days, there are two visa options:
+
+- Book a tour with a travel agent in Vietnam requesting that the agent applies for a visa pre-approval letter for your travel to Vietnam. On receipt of the pre-approval letter by the Vietnamese Embassy your agent will inform you when to collect your visa from the Embassy;
+ 
+- Apply for an e-visa online through the online portal. E-visas are issued for stays of up to 30 days, single entry only. Use of the e-visa is limited to certain entry/exit points which you must select at the time of application. You cannot make any amendments once your application is completed.
+
+-  If you apply for the 30 day e-visa while in Vietnam and are successful, you must leave the country before your initial 15 day stay expires to validate the 30 day e-visa.
+
+- If you are travelling to Vietnam for business for longer than 15 days, or are an expert and/ or a high-skilled worker you will need to contact your business partner/ employer/ sponsor in Vietnam to work with relevant authorities of Vietnam to arrange the issuance of your visa.
+
 ### Beaches Near HCMC
 
 - Vung Tau.
