@@ -11,7 +11,7 @@ An e-visa for Vietnam costs you 25 USD (per person). This fee is not refunded if
 
 https://tw.forumosa.com/t/teco-ho-chi-minh-city-saigon/34990
 
-## HCMC
+## HCMC + Nha Trang
 
 ### - [Beaches and Yoga in HCMC](https://www.tripadvisor.com/Attractions-g293925-Activities-c40-t260-Ho_Chi_Minh_City.html)
 
