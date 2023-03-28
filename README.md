@@ -7,6 +7,8 @@
 - Nha Trang. ...
 - Vung Tau.
 
+https://www.youtube.com/watch?v=X57YWkdX2lg
+
 ## TODO: ONGOING TICKET, Research Visas. 
 
 <p align="center"><img src="https://www.infoplease.com/sites/default/files/i_infopls_com/images/mvietnam.gif"></p>
