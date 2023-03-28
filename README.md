@@ -1,5 +1,16 @@
 # Low-Grid
 
+## ONGOING TICKET
+
+## Visas
+
+British Nationals can enter Vietnam for up to 15 days for tourism, transit and business (but not paid or voluntary work)
+without needing to apply for a visa.
+
+An e-visa for Vietnam costs you 25 USD (per person). This fee is not refunded if your application is refused or your visa letter contains any wrong details since you provide incorrect details in the application form.
+
+https://tw.forumosa.com/t/teco-ho-chi-minh-city-saigon/34990
+
 ## HCMC
 
 ### - [Beaches and Yoga in HCMC](https://www.tripadvisor.com/Attractions-g293925-Activities-c40-t260-Ho_Chi_Minh_City.html)
