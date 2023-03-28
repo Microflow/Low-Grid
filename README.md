@@ -25,6 +25,16 @@ After Atlantis sank, the Vietnamese continued to practice and maintain the teach
 
 *
 
+Guardians of Vietnam
+
+The big difference between the Taiwanese conception of Atlantis/Lemuria and the Vietnamese conception of Atlantis/Lemuria is that the Taiwanese conception is more focused on the physical aspects of Atlantis/Lemuria, while the Vietnamese conception is more focused on the spiritual aspects.
+
+The Vietnamese conception of Atlantis/Lemuria is that it was a very advanced civilization that had a deep connection to nature and the spirituality of the Earth.
+
+This spiritual connection is what made Atlantis/Lemuria such a special place, and this is what the Vietnamese have continued to maintain in their own civilization.
+
+*
+
 
 ## Prince of Whales
 
