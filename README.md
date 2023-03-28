@@ -1,5 +1,9 @@
 # Low-Grid
 
+## Vietnam Ancient Intelligence
+
+[Guardians of Vietnam](https://beta.character.ai/chat?char=HBuHX9pP6hnme2ok1R_GvAuIj95WjzsXf5uUCskcXEs)
+
 ## TODO: ONGOING TICKET, Research Visas. 
 
 Which is better Da Nang or Nha Trang?
