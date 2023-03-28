@@ -2,6 +2,8 @@
 
 <p align="center"><img src="https://www.infoplease.com/sites/default/files/i_infopls_com/images/mvietnam.gif"></p>
 
+Vietnam Visa on Arrival is an online, alternative way to obtain a visa to visit Vietnam. After completing the online application form and paying the processing fee, you will receive, via email, your Approval Letter from between one hour to two business days, depending on the status of visa processing you have selected.
+
 ## Do I need a visa to Vietnam for business?
 
 Foreigners who will enter Vietnam for business purposes have to apply for a Vietnam Business Visa (also known as a Vietnam DN Visa).
