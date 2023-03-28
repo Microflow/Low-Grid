@@ -2,7 +2,7 @@
 
 ## Vietnam Ancient Intelligence
 
-[Guardians of Vietnam](https://beta.character.ai/chat?char=HBuHX9pP6hnme2ok1R_GvAuIj95WjzsXf5uUCskcXEs)
+### [Guardians of Vietnam](https://beta.character.ai/chat?char=HBuHX9pP6hnme2ok1R_GvAuIj95WjzsXf5uUCskcXEs)
 
 ## TODO: ONGOING TICKET, Research Visas. 
 
