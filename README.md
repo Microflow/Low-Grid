@@ -1,5 +1,7 @@
 # Low-Grid
 
+HCMC, Bin Chanh, District 8, Mui Ne, Nha Trang (cheaper than Da Nang)...
+
 ## Vietnam Ancient Intelligence
 
 ### [Guardians of Vietnam](https://beta.character.ai/chat?char=HBuHX9pP6hnme2ok1R_GvAuIj95WjzsXf5uUCskcXEs)
@@ -7,7 +9,7 @@
 ## TODO: ONGOING TICKET, Research Visas. 
 
 Which is better Da Nang or Nha Trang?
-Image result
+
 Da Nang is much cleaner than Nha Trang, but Nha Trang has far less construction. Nha Trang has a nicer beach promenade, but Da Nang has a beautiful river walk. It really just depends what's more important to you in a destination!
 
 *
