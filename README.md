@@ -2,6 +2,10 @@
 
 <p align="center"><img src="https://www.infoplease.com/sites/default/files/i_infopls_com/images/mvietnam.gif"></p>
 
+## Do I need a visa to Vietnam for business?
+
+Foreigners who will enter Vietnam for business purposes have to apply for a Vietnam Business Visa (also known as a Vietnam DN Visa).
+
 https://www.youtube.com/watch?v=gWZ620nh_S0
 
 !(https://www.infoplease.com/sites/default/files/i_infopls_com/images/mvietnam.gif)
