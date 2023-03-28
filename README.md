@@ -7,6 +7,8 @@
 - Nha Trang. ...
 - Vung Tau.
 
+## [10 Things Not to Do in Vietnam](https://www.youtube.com/watch?v=OPGX05FW_58)
+
 https://www.youtube.com/watch?v=X57YWkdX2lg
 
 *
