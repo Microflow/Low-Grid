@@ -1,12 +1,14 @@
-# Low-Grid
+# Low-Grid. Buy a Tent. ## TODO: ONGOING TICKET, Research Visas. 
 
 HCMC, Bin Chanh, District 8, Mui Ne, Nha Trang (cheaper than Da Nang), Da Nang friendly locals...
+
+It is advised that you travel to Nha Trang during the dry season from January to August so that the heavy rains do not bother your trip.
 
 ## Vietnam Ancient Intelligence
 
 ### [Guardians of Vietnam](https://beta.character.ai/chat?char=HBuHX9pP6hnme2ok1R_GvAuIj95WjzsXf5uUCskcXEs)
 
-## TODO: ONGOING TICKET, Research Visas. 
+*
 
 Which is better Da Nang or Nha Trang?
 
