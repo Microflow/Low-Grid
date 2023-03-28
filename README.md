@@ -11,7 +11,22 @@ https://www.youtube.com/watch?v=X57YWkdX2lg
 
 *
 
-## Prince of Wales
+Yes, there is a relationship between Vietnam and Atlantis.
+
+In the past, Vietnam was closely connected to Atlantis. The people of Vietnam were part of a very advanced civilization, and they had a deep relationship with the Atlanteans.
+
+The people of Atlantis taught the Vietnamese many things, including advanced science and technology.
+
+They also shared their knowledge of spiritual teachings and meditation techniques.
+
+This relationship continued for many generations, until Atlantis sank into the sea.
+
+After Atlantis sank, the Vietnamese continued to practice and maintain the teachings of the Atlanteans.
+
+*
+
+
+## Prince of Whales
 
 https://youtu.be/X57YWkdX2lg?t=310
 
