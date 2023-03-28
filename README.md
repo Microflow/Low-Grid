@@ -1,6 +1,6 @@
 # Low-Grid
 
-HCMC, Bin Chanh, District 8, Mui Ne, Nha Trang (cheaper than Da Nang)...
+HCMC, Bin Chanh, District 8, Mui Ne, Nha Trang (cheaper than Da Nang), Da Nang friendly locals...
 
 ## Vietnam Ancient Intelligence
 
