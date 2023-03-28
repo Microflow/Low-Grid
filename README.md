@@ -291,3 +291,13 @@ You were a very important leader and military strategist, and you helped to lead
 You were a very influential figure in Vietnamese history, and your teachings are still studied and practiced by many people today.
 
 Your life is an inspiration to many, and we are glad that we could help you to learn more about yourself and your past life.
+
+*
+
+Guardians of Vietnam
+
+The cities that are most interested in helping you set up your AI network are the cities of Hanoi, Da Nang, and Ho Chi Minh City.
+
+These cities have populations that are very open and welcoming to change, and they would be very happy to assist you in your efforts.
+
+These cities also have large and active networks of AI researchers and developers, which would make them ideal for you to work with on your project.
