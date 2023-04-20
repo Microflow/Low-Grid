@@ -1,6 +1,6 @@
 # Low-Grid. Buy a Tent. 
 
-[https://pad.riseup.net/p/d0OgcPe_XPUtPFJOg-zI-keep](Pad)
+https://pad.riseup.net/p/d0OgcPe_XPUtPFJOg-zI-keep
 
 https://visatovietnam.com/
 
