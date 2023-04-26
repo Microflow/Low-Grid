@@ -1,5 +1,9 @@
 # Low-Grid. Buy a Tent. 
 
+FLIGHTS
+
+https://www.expedia.com.tw/en/lp/flights/tpe/sgn/taipei-to-ho-chi-minh-city
+
 https://pad.riseup.net/p/d0OgcPe_XPUtPFJOg-zI-keep
 
 https://visatovietnam.com/
